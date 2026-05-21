@@ -3,7 +3,7 @@ title: "7 Homemade Sugar and Salt Body Scrubs for Glowing Skin ..."
 description: "Pumpkin Pie and Sugar Spice Scrub; Morning Coffee Scrub; Coconut Lime Sugar Scrub; Gingerbread Cookie Scrub; Cinnamon Vanilla Scrub; More ..."
 url: "https://skincare.allwomenstalk.com/homemade-sugar-and-salt-body-scrubs/"
 category: "skincare"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Homemade Sugar and Salt Body Scrubs for Glowing Skin ...
@@ -64,16 +64,16 @@ Source: [aprettylifeinthesuburbs.com](https://aprettylifeinthesuburbs.com/make-i
 
 ## Related Posts
 
-- [how to make your own makeup remover](https://makeup.allwomenstalk.com/diy-makeup-remover-recipes/)
-- [fruit mask for face](https://skincare.allwomenstalk.com/fruit-face-masks/)
 - [micellar water benefit](https://skincare.allwomenstalk.com/benefits-of-micellar-water/)
+- [pet face lift reviews](https://beauty.allwomenstalk.com/pros-and-cons-of-facial-thread-lifts/)
+- [best natural exfoliants](https://skincare.allwomenstalk.com/natural-exfoliants-in-your-kitchen/)
+- [how to make your own makeup remover](https://makeup.allwomenstalk.com/diy-makeup-remover-recipes/)
 - [site:food.allwomenstalk.com](https://food.allwomenstalk.com/smoothies-for-beautiful-skin/)
 - [skin products for acne prone skin](https://skincare.allwomenstalk.com/skincare-products-for-acne-prone-skin/)
-- [best natural exfoliants](https://skincare.allwomenstalk.com/natural-exfoliants-in-your-kitchen/)
-- [pet face lift reviews](https://beauty.allwomenstalk.com/pros-and-cons-of-facial-thread-lifts/)
-- [thot](https://beauty.allwomenstalk.com/health-and-beauty-products-containing-cannabis/)
+- [fruit mask for face](https://skincare.allwomenstalk.com/fruit-face-masks/)
 - [how to use differen](https://skincare.allwomenstalk.com/review-of-differen-gel/)
 - [how to make eyelash serum](https://beauty.allwomenstalk.com/diy-serum-for-eyelash-growth/)
+- [thot](https://beauty.allwomenstalk.com/health-and-beauty-products-containing-cannabis/)
 - [7 Recipes for Natural Homemade Facials ...](https://skincare.allwomenstalk.com/7-recipes-for-natural-homemade-facials/)
 - [7 Steps to a Great Home Made Exfoliator ...](https://skincare.allwomenstalk.com/steps-to-a-great-home-made-exfoliator/)
 
