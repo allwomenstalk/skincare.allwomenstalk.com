@@ -3,7 +3,7 @@ title: "Sulwhasoo Introduces Two New Summer Icons for Skin and Lip"
 description: "Where Skin Science Meets Ritual: The Ultimate S Enriched Cleansing Foam; Color, Comfort, and Care: Perfecting Lip Color in Shade Bloom; A Heritage Reimagined for the Modern Woman; More ..."
 url: "https://skincare.allwomenstalk.com/sulwhasoo-new-skincare-products-summer-2025/"
 category: "skincare"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # Sulwhasoo Introduces Two New Summer Icons for Skin and Lip
