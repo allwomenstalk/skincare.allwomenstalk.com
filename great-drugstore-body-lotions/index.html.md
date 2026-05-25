@@ -3,7 +3,7 @@ title: "7 Great Drugstore Body Lotions ..."
 description: "Jergens Natural Glow Foaming Body Moisturize; Burt’s Bees Body Lotion, Milk & Honey; Aveeno Daily Moisturizing Lotion SPF 15; Vaseline Body Lotion, Cocoa Butter; Olay Body Lotion, Silk Whimsy; More ..."
 url: "https://skincare.allwomenstalk.com/great-drugstore-body-lotions/"
 category: "skincare"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Great Drugstore Body Lotions ...
@@ -22,7 +22,7 @@ My bestie has very fair skin, so every time she’s tried to use self-tanner, sh
 ![Burt’s Bees Body Lotion, Milk & Honey](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/on/yl/cf1a05sj54c928ea173d8328016843_165x393.jpg)
 
 **Price:** $7.99 at [soap.com](http://www.soap.com/products/Burts-Bees-Body-Lotion-Milk-Honey-95216)
-I love this drugstore body lotion because it actually works, moisturizing and protecting your skin for up to 24 hours, with gentle, all-natural ingredients, like milk, honey, coconut and grape [seed oils](https://food.allwomenstalk.com/nut-and-seed-oils-that-will-change-the-way-you-eat/) and vitamin E. It smells nice, too, very sweet but not cloying.
+I love this drugstore body lotion because it actually works, moisturizing and protecting your skin for up to 24 hours, with gentle, all-natural ingredients, like milk, honey, coconut and grape seed oils and vitamin E. It smells nice, too, very sweet but not cloying.
 
 ## 3. Aveeno Daily Moisturizing Lotion SPF 15
 
@@ -63,16 +63,16 @@ See what I mean? It’s completely possible to get a great body lotion without b
 
 ## Related Posts
 
-- [moisturizer for summer](https://skincare.allwomenstalk.com/great-moisturizers-for-summer/)
 - [what ingredients to avoid in face cream](https://skincare.allwomenstalk.com/ingredients-to-avoid-in-your-skin-care-products/)
+- [moisturizer for summer](https://skincare.allwomenstalk.com/great-moisturizers-for-summer/)
+- [7 Night Treatments for Amazing Skin ...](https://skincare.allwomenstalk.com/night-treatments-for-amazing-skin/)
+- [7 Great Moisturizers with SPF ...](https://skincare.allwomenstalk.com/great-moisturizers-with-spf/)
+- [what is oil free moisturizer](https://skincare.allwomenstalk.com/best-oil-free-moisturizers/)
 - [7 Absolutely Perfect Products for Dry Skin ...](https://skincare.allwomenstalk.com/7-absolutely-perfect-products-for-dry-skin/)
 - [self tanning lotions best](https://skincare.allwomenstalk.com/self-tanning-lotions/)
-- [7 Great Moisturizers with SPF ...](https://skincare.allwomenstalk.com/great-moisturizers-with-spf/)
 - [nivea smooth indulgence hand cream](https://skincare.allwomenstalk.com/7-great-lotions/)
-- [anti aging creams best](https://skincare.allwomenstalk.com/best-anti-aging-creams/)
 - [Top 10 Skin Care Products ...](https://skincare.allwomenstalk.com/top-skin-care-products/)
-- [what is oil free moisturizer](https://skincare.allwomenstalk.com/best-oil-free-moisturizers/)
-- [7 Night Treatments for Amazing Skin ...](https://skincare.allwomenstalk.com/night-treatments-for-amazing-skin/)
+- [anti aging creams best](https://skincare.allwomenstalk.com/best-anti-aging-creams/)
 - [8 Luxurious Body Lotions ...](https://skincare.allwomenstalk.com/8-luxurious-body-lotions/)
 - [8 Best Drugstore Beauty Products ...](https://makeup.allwomenstalk.com/best-drugstore-beauty-products-3/)
 

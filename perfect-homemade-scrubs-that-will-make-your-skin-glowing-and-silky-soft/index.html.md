@@ -3,7 +3,7 @@ title: "11 Perfect Homemade Scrubs That Will Make Your Skin Glowing and Silky So
 description: "Classic Sugar Scrub; Raw Honey Scrub; Nourishing Scrub for Sensitive Skin; Clarifying Salt Mask; Baking Soda and Coconut Oil Scrub; More ..."
 url: "https://skincare.allwomenstalk.com/perfect-homemade-scrubs-that-will-make-your-skin-glowing-and-silky-soft/"
 category: "skincare"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 11 Perfect Homemade Scrubs That Will Make Your Skin Glowing and Silky Soft ...
@@ -94,7 +94,7 @@ Where are my pumpkin pie lovers? This is the scrub for you! It will fill your se
 White Castor Sugar
 Sunflower Oil
 Lemon Essence
-Drop of red or [pink food](https://food.allwomenstalk.com/feed-that-girl-pink-food-that-looks-as-fabulous-as-it-tastes/) coloring
+Drop of red or pink food coloring
 
 Mmm, who doesn’t love a refreshing glass of pink lemonade! But did you know you could use your favorite summertime beverage to exfoliate your skin? You can! Well, almost. This scrub looks and smells like pink lemonade, but is much healthier for you, will sunflower oil and lemon to renew and refresh your skin!
 
@@ -137,15 +137,15 @@ Ah, but which one of these will you try first? Well, I’m sure you’ll be sati
 
 ## Related Posts
 
-- [boscia willow bark spot treatment](https://beauty.allwomenstalk.com/best-acne-treatments/)
 - [best b b cream](https://makeup.allwomenstalk.com/best-bb-creams-you-should-absolutely-try/)
-- [best dark circle treatments](https://beauty.allwomenstalk.com/best-dark-under-eye-circle-treatments/)
-- [yes to carrots daily facial moisturizer](https://skincare.allwomenstalk.com/best-skincare-products-you-can-buy-at-the-drugstore/)
-- [oil wipes for face target](https://beauty.allwomenstalk.com/best-facial-wipes/)
 - [gwyneth paltrow freckles](https://beauty.allwomenstalk.com/weird-facial-treatments-thatll-make-you-squirm/)
+- [best dark circle treatments](https://beauty.allwomenstalk.com/best-dark-under-eye-circle-treatments/)
+- [oil wipes for face target](https://beauty.allwomenstalk.com/best-facial-wipes/)
+- [best body oils for skin](https://beauty.allwomenstalk.com/best-body-oils/)
 - [fab feet](https://beauty.allwomenstalk.com/best-foot-creams/)
 - [top 10 tinted moisturizers](https://beauty.allwomenstalk.com/best-tinted-moisturizers/)
-- [best body oils for skin](https://beauty.allwomenstalk.com/best-body-oils/)
+- [yes to carrots daily facial moisturizer](https://skincare.allwomenstalk.com/best-skincare-products-you-can-buy-at-the-drugstore/)
+- [boscia willow bark spot treatment](https://beauty.allwomenstalk.com/best-acne-treatments/)
 - [facial soap brands](https://beauty.allwomenstalk.com/best-facial-cleansers/)
 - [8 Body Scrub Ingredients That Work ...](https://skincare.allwomenstalk.com/8-body-scrub-ingredients-that-work/)
 - [7 Recipes for Natural Homemade Facials ...](https://skincare.allwomenstalk.com/7-recipes-for-natural-homemade-facials/)

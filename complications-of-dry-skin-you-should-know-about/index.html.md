@@ -3,7 +3,7 @@ title: "7 Complications of Dry Skin You Should Know about ..."
 description: "Eczema Flare Ups; Cracks; Infection; Itching; Bleeding; More ..."
 url: "https://skincare.allwomenstalk.com/complications-of-dry-skin-you-should-know-about/"
 category: "skincare"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Complications of Dry Skin You Should Know about ...
@@ -42,16 +42,16 @@ Do you have dry skin? Me too. It always gets worse in the winter, but a good qua
 
 ## Related Posts
 
-- [Be Wary of These Items if You Have a Nickel Allerg...](https://health.allwomenstalk.com/items-to-be-wary-of-if-you-have-a-nickel-allergy/)
-- [Common Pregnancy Skin Conditions You Might Experie...](https://skincare.allwomenstalk.com/pregnancy-skin-conditions-you-might-have-to-deal-with/)
-- [7 Side Effects of Stress to Look out for ...](https://health.allwomenstalk.com/side-effects-of-stress-to-look-out-for/)
-- [10 Health Facts Discovered in 2014 ...](https://health.allwomenstalk.com/health-facts-discovered-in/)
-- [10 Things You Should Know about Depression ...](https://mindfulness.allwomenstalk.com/things-you-should-know-about-depression/)
 - [7 Things You Should Know about Body Dysmorphia ...](https://mindfulness.allwomenstalk.com/things-you-should-know-about-body-dysmorphia/)
 - [7 Things to Remember if Youre Prescribed Antibioti...](https://health.allwomenstalk.com/things-to-remember-if-youre-prescribed-antibiotics/)
+- [10 Things You Should Know about Depression ...](https://mindfulness.allwomenstalk.com/things-you-should-know-about-depression/)
 - [7 Reasons You Should Have a Regular Dental Checkup...](https://health.allwomenstalk.com/reasons-you-should-have-a-regular-dental-checkup/)
-- [7 Symptoms of Psoriasis to Get Checked out ...](https://skincare.allwomenstalk.com/symptoms-of-psoriasis-to-get-checked-out/)
+- [Common Pregnancy Skin Conditions You Might Experie...](https://skincare.allwomenstalk.com/pregnancy-skin-conditions-you-might-have-to-deal-with/)
+- [10 Health Facts Discovered in 2014 ...](https://health.allwomenstalk.com/health-facts-discovered-in/)
+- [Be Wary of These Items if You Have a Nickel Allerg...](https://health.allwomenstalk.com/items-to-be-wary-of-if-you-have-a-nickel-allergy/)
+- [7 Side Effects of Stress to Look out for ...](https://health.allwomenstalk.com/side-effects-of-stress-to-look-out-for/)
 - [7 Things to Worry about More than Ebola ...](https://health.allwomenstalk.com/things-to-worry-about-more-than-ebola/)
+- [7 Symptoms of Psoriasis to Get Checked out ...](https://skincare.allwomenstalk.com/symptoms-of-psoriasis-to-get-checked-out/)
 - [7 Tips on Preventing Dry Skin ...](https://skincare.allwomenstalk.com/7-tips-on-preventing-dry-skin/)
 - [7 Tips on Preventing Skin Dehydration ...](https://skincare.allwomenstalk.com/7-tips-on-preventing-skin-dehydration/)
 
