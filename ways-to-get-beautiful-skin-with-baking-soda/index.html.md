@@ -54,16 +54,16 @@ This article written in collaboration with editor, Eliza Martinez
 
 ## Related Posts
 
+- [milk of magnesia for oily skin](https://skincare.allwomenstalk.com/amazing-tips-to-calm-an-oily-t-zone/)
 - [how to become prettier in a week](https://beauty.allwomenstalk.com/ways-to-get-great-skin-in-2-weeks/)
-- [exfoliate benefits](https://skincare.allwomenstalk.com/top-notch-benefits-of-exfoliating-your-skin/)
 - [how to be bikini ready](https://skincare.allwomenstalk.com/tips-for-bikini-ready-skin/)
 - [foxy spray tan](https://skincare.allwomenstalk.com/best-self-tanning-tips-for-a-foxy-glow/)
-- [sensational skincare](https://skincare.allwomenstalk.com/sensational-spring-break-skin-care-tips/)
-- [aging oily skin](https://skincare.allwomenstalk.com/best-anti-aging-tips-for-oily-skin/)
-- [how to clear hormonal.acne](https://skincare.allwomenstalk.com/ways-to-treat-hormonal-acne/)
-- [milk of magnesia for oily skin](https://skincare.allwomenstalk.com/amazing-tips-to-calm-an-oily-t-zone/)
-- [face yoga crows feet](https://skincare.allwomenstalk.com/tips-to-prevent-and-treat-crows-feet/)
 - [how to make your spray tan last](https://skincare.allwomenstalk.com/essential-pointers-on-making-your-spray-tan-last/)
+- [face yoga crows feet](https://skincare.allwomenstalk.com/tips-to-prevent-and-treat-crows-feet/)
+- [sensational skincare](https://skincare.allwomenstalk.com/sensational-spring-break-skin-care-tips/)
+- [how to clear hormonal.acne](https://skincare.allwomenstalk.com/ways-to-treat-hormonal-acne/)
+- [aging oily skin](https://skincare.allwomenstalk.com/best-anti-aging-tips-for-oily-skin/)
+- [exfoliate benefits](https://skincare.allwomenstalk.com/top-notch-benefits-of-exfoliating-your-skin/)
 - [7 Ways to Get Perfect Skin ...](https://skincare.allwomenstalk.com/7-ways-to-get-perfect-skin/)
 - [10 Tips for a Lifetime of Beautiful Skin ...](https://skincare.allwomenstalk.com/tips-for-a-lifetime-of-beautiful-skin/)
 

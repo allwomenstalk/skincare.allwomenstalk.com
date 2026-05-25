@@ -74,16 +74,16 @@ These’re the only 10 skincare products you’ll ever need. Which ones are you 
 
 ## Related Posts
 
+- [gwen stefani mascara reviews](https://makeup.allwomenstalk.com/sexy-new-urban-decay-products-made-by-gwen-stefani/)
 - [paris riche stylo eye hollywood icon](https://makeup.allwomenstalk.com/green-makeup-products-for-celebrating-st-patricks-day/)
 - [best drugstore blowout cream](https://hair.allwomenstalk.com/look-like-a-bombshell-with-these-blowout-products/)
-- [blue makeup brands](https://makeup.allwomenstalk.com/try-the-blue-makeup-trend-with-these-products/)
 - [dark skin eyeshadow palette](https://makeup.allwomenstalk.com/makeup-products-every-dark-skinned-beauty-must-have/)
+- [blue makeup brands](https://makeup.allwomenstalk.com/try-the-blue-makeup-trend-with-these-products/)
 - [good waterproof makeup](https://makeup.allwomenstalk.com/waterproof-makeup-that-wont-rub-off-or-run/)
-- [gwen stefani mascara reviews](https://makeup.allwomenstalk.com/sexy-new-urban-decay-products-made-by-gwen-stefani/)
-- [lash trend](https://makeup.allwomenstalk.com/rock-the-fluffy-lash-trend-with-these-sexy-falsies/)
-- [underrated makeup brands](https://makeup.allwomenstalk.com/wed-like-to-introduce-you-to-your-new-favorite-makeup-brands/)
 - [spa luxury crave body lotion](https://beauty.allwomenstalk.com/spoil-yourself-with-these-luxury-beauty-products/)
 - [confidence products](https://beauty.allwomenstalk.com/these-beauty-products-will-give-you-an-instant-confidence-boost/)
+- [lash trend](https://makeup.allwomenstalk.com/rock-the-fluffy-lash-trend-with-these-sexy-falsies/)
+- [underrated makeup brands](https://makeup.allwomenstalk.com/wed-like-to-introduce-you-to-your-new-favorite-makeup-brands/)
 - [7 Amazing Skin Care Products You Simply Need for W...](https://skincare.allwomenstalk.com/amazing-skin-care-products-you-simply-need-for-winter/)
 - [8 Essential Beauty Products All Girls Should Own ....](https://allwomenstalk.com/8-essential-beauty-products-all-girls-should-own/)
 

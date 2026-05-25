@@ -36,16 +36,16 @@ If you suffer from particularly dry skin, then exposing your face to oils overni
 
 ## Related Posts
 
-- [tissue test for skin type](https://skincare.allwomenstalk.com/how-to-do-the-tissue-test-to-determine-your-skin-type/)
 - [Cellulite 101 - Treatment ...](https://allwomenstalk.com/cellulite-101-treatment/)
-- [laser skin treatment toronto](https://skincare.allwomenstalk.com/laser-skin-treatment-for-youthful-skin/)
 - [makeup separating under eyes](https://skincare.allwomenstalk.com/essential-reasons-to-have-a-separate-skincare-routine-for-your-eyes/)
-- [10 Mistakes when It Comes to Face](https://allwomenstalk.com/10-mistakes-when-it-comes-to-face/)
-- [treatyourskin](https://skincare.allwomenstalk.com/how-to-treat-your-skin-with-respect/)
-- [does a tan hide cellulite](https://skincare.allwomenstalk.com/make-cellulite-less-noticeable-with-these-helpful-tips-and-tricks/)
 - [Its Not Just about Wrinkles](https://allwomenstalk.com/its-not-just-about-wrinkles/)
+- [treatyourskin](https://skincare.allwomenstalk.com/how-to-treat-your-skin-with-respect/)
+- [tissue test for skin type](https://skincare.allwomenstalk.com/how-to-do-the-tissue-test-to-determine-your-skin-type/)
+- [laser skin treatment toronto](https://skincare.allwomenstalk.com/laser-skin-treatment-for-youthful-skin/)
+- [10 Mistakes when It Comes to Face](https://allwomenstalk.com/10-mistakes-when-it-comes-to-face/)
 - [reverse uv damage](https://beauty.allwomenstalk.com/can-you-reverse-the-visible-signs-of-sun-damage/)
 - [how to get youthful skin](https://skincare.allwomenstalk.com/useful-tips-for-beautiful-youthful-skin/)
+- [does a tan hide cellulite](https://skincare.allwomenstalk.com/make-cellulite-less-noticeable-with-these-helpful-tips-and-tricks/)
 - [7 Steps to Glowing Skin ...](https://allwomenstalk.com/7-steps-to-glowing-skin/)
 - [9 Tips on How to Get Glowing Skin ...](https://beauty.allwomenstalk.com/tips-on-how-to-get-glowing-skin/)
 

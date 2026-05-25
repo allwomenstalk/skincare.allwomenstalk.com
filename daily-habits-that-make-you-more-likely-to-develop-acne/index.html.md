@@ -140,16 +140,16 @@ What causes you to break out? What do you do about it?
 
 ## Related Posts
 
-- [kale benefits for skin](https://skincare.allwomenstalk.com/how-can-you-use-kale-to-make-your-skin-more-beautiful/)
-- [best full coverage foundation for acne scars](https://makeup.allwomenstalk.com/this-is-the-best-foundation-routine-to-cover-up-acne-and-scars/)
-- [natural makeup teenager](https://skincare.allwomenstalk.com/copy-these-teen-skincare-tips-to-look-like-a-ten/)
-- [chinese eyes gif](https://skincare.allwomenstalk.com/tips-for-taking-care-of-the-delicate-skin-around-your-eyes/)
-- [fassure](https://skincare.allwomenstalk.com/the-secret-to-getting-rid-of-acne-once-and-for-all/)
-- [bas skin](https://skincare.allwomenstalk.com/whats-the-cause-behind-your-bad-skin-days/)
-- [can deodorant prevent chafing](https://skincare.allwomenstalk.com/how-to-stop-your-skin-from-chafing/)
-- [how to get flawless skin](https://skincare.allwomenstalk.com/how-to-get-flawless-skin-on-a-college-girls-budget/)
-- [shiny look makeup](https://makeup.allwomenstalk.com/ways-to-reduce-shiny-skin-all-day-long/)
 - [what to do with pimples that hurt](https://skincare.allwomenstalk.com/how-to-deal-with-a-pimple-that-hurts-like-hell/)
+- [bas skin](https://skincare.allwomenstalk.com/whats-the-cause-behind-your-bad-skin-days/)
+- [kale benefits for skin](https://skincare.allwomenstalk.com/how-can-you-use-kale-to-make-your-skin-more-beautiful/)
+- [fassure](https://skincare.allwomenstalk.com/the-secret-to-getting-rid-of-acne-once-and-for-all/)
+- [how to get flawless skin](https://skincare.allwomenstalk.com/how-to-get-flawless-skin-on-a-college-girls-budget/)
+- [natural makeup teenager](https://skincare.allwomenstalk.com/copy-these-teen-skincare-tips-to-look-like-a-ten/)
+- [best full coverage foundation for acne scars](https://makeup.allwomenstalk.com/this-is-the-best-foundation-routine-to-cover-up-acne-and-scars/)
+- [chinese eyes gif](https://skincare.allwomenstalk.com/tips-for-taking-care-of-the-delicate-skin-around-your-eyes/)
+- [can deodorant prevent chafing](https://skincare.allwomenstalk.com/how-to-stop-your-skin-from-chafing/)
+- [shiny look makeup](https://makeup.allwomenstalk.com/ways-to-reduce-shiny-skin-all-day-long/)
 - [13 Things That Cause Acne ...](https://allwomenstalk.com/13-things-that-cause-acne/)
 - [12 Reasons Why You Cant Get Rid of Acne ...](https://allwomenstalk.com/12-reasons-why-you-cant-get-rid-of-acne/)
 

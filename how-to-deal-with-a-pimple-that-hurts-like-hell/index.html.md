@@ -42,15 +42,15 @@ Have you ever had a painful pimple? What did you do about it?
 
 ## Related Posts
 
-- [kale benefits for skin](https://skincare.allwomenstalk.com/how-can-you-use-kale-to-make-your-skin-more-beautiful/)
-- [shiny look makeup](https://makeup.allwomenstalk.com/ways-to-reduce-shiny-skin-all-day-long/)
-- [cover stretch marks with makeup](https://skincare.allwomenstalk.com/ways-to-mask-your-stretch-marks-or-get-rid-of-them-altogether/)
-- [ways to brighten skin](https://skincare.allwomenstalk.com/how-to-brighten-your-skin-in-two-weeks-flat/)
-- [why is my acne acting up](https://skincare.allwomenstalk.com/sneaky-reasons-your-acne-is-acting-up/)
-- [does vasaline make your eyelashes grow](https://skincare.allwomenstalk.com/healthy-things-to-put-on-your-face-before-bed/)
 - [chamomile tea bags on eyes](https://skincare.allwomenstalk.com/treat-your-fine-lines-and-crows-feet-with-these-anti-wrinkle-eye-masks/)
-- [girls with clear skin](https://skincare.allwomenstalk.com/dietary-changes-thatll-clear-your-acne-right-up/)
+- [shiny look makeup](https://makeup.allwomenstalk.com/ways-to-reduce-shiny-skin-all-day-long/)
+- [why is my acne acting up](https://skincare.allwomenstalk.com/sneaky-reasons-your-acne-is-acting-up/)
 - [girls with clear skin](https://skincare.allwomenstalk.com/hacks-for-to-get-clear-skin-for-girls-struggling-with-acne/)
+- [kale benefits for skin](https://skincare.allwomenstalk.com/how-can-you-use-kale-to-make-your-skin-more-beautiful/)
+- [cover stretch marks with makeup](https://skincare.allwomenstalk.com/ways-to-mask-your-stretch-marks-or-get-rid-of-them-altogether/)
+- [does vasaline make your eyelashes grow](https://skincare.allwomenstalk.com/healthy-things-to-put-on-your-face-before-bed/)
+- [ways to brighten skin](https://skincare.allwomenstalk.com/how-to-brighten-your-skin-in-two-weeks-flat/)
+- [girls with clear skin](https://skincare.allwomenstalk.com/dietary-changes-thatll-clear-your-acne-right-up/)
 - [everygirl skincare](https://skincare.allwomenstalk.com/this-is-what-every-girl-with-dry-skin-needs-to-know/)
 - [How to Free Yourself from Breakouts Naturally ...](https://lifestyle.allwomenstalk.com/how-to-free-yourself-from-breakouts-naturally/)
 - [Get Rid of Adult Acne ...](https://allwomenstalk.com/get-rid-of-adult-acne/)

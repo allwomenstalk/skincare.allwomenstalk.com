@@ -42,16 +42,16 @@ Our mouths go through a lot day to day. Face it. We use them. It's no wonder the
 
 ## Related Posts
 
+- [what brand of lipstick stays on all day](https://makeup.allwomenstalk.com/lipstick-that-actually-lasts-the-best-brands-thatll-stay-on-all-day/)
+- [is it rude to put lipstick on at the table](https://makeup.allwomenstalk.com/rules-of-lipstick-for-irresistibly-kissable-lips/)
+- [is the kylie jenner challenge safe](https://beauty.allwomenstalk.com/the-anti-kyliejennerchallenge-here-is-all-you-need-to-know-to-have-healthy-sexy-lips/)
 - [kiss kiss bee glow](https://makeup.allwomenstalk.com/best-tasting-lip-products-to-make-your-man-love-kissing-you/)
 - [pucker lip balm](https://beauty.allwomenstalk.com/pucker-up-easy-lip-balm-recipes-to-make-at-home/)
-- [is it rude to put lipstick on at the table](https://makeup.allwomenstalk.com/rules-of-lipstick-for-irresistibly-kissable-lips/)
-- [what brand of lipstick stays on all day](https://makeup.allwomenstalk.com/lipstick-that-actually-lasts-the-best-brands-thatll-stay-on-all-day/)
-- [softlips cube lip balm](https://beauty.allwomenstalk.com/lip-balms-to-keep-your-lips-soft-and-kissable/)
 - [light pink lips](https://makeup.allwomenstalk.com/makeup-trend-pale-pink-lips-inspos-you-must-try-for-yourself/)
-- [how to find the right lipstick color](https://makeup.allwomenstalk.com/the-perfect-pout-lip-infographics-you-have-to-see/)
 - [dare riche lipstick](https://makeup.allwomenstalk.com/wear-if-you-dare-matte-lipstick-shades-we-love/)
-- [is the kylie jenner challenge safe](https://beauty.allwomenstalk.com/the-anti-kyliejennerchallenge-here-is-all-you-need-to-know-to-have-healthy-sexy-lips/)
+- [softlips cube lip balm](https://beauty.allwomenstalk.com/lip-balms-to-keep-your-lips-soft-and-kissable/)
 - [ruby lips meaning](https://makeup.allwomenstalk.com/all-you-need-to-know-to-rock-a-bold-lip-easy-steps/)
+- [how to find the right lipstick color](https://makeup.allwomenstalk.com/the-perfect-pout-lip-infographics-you-have-to-see/)
 - [7 Tips for a Great Lip Stain ...](https://makeup.allwomenstalk.com/tips-for-a-great-lip-stain/)
 - [7 Charmingly Useful Tips on How to Choose a Lipsti...](https://makeup.allwomenstalk.com/charmingly-useful-tips-on-how-to-choose-a-lipstick/)
 

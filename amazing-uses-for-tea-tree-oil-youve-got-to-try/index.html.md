@@ -58,16 +58,16 @@ With tea tree oil you can recreate so many products you use on a regular basis f
 
 ## Related Posts
 
-- [grandmas home remedies](https://lifestyle.allwomenstalk.com/natural-old-fashioned-remedies-that-your-grandma-swears-by/)
+- [windburned skin](https://skincare.allwomenstalk.com/top-tips-to-treat-and-prevent-windburn/)
+- [things to do while sick at home](https://health.allwomenstalk.com/things-to-do-when-you-are-sick/)
 - [herbs that help acne](https://skincare.allwomenstalk.com/wonderful-herbs-to-eat-that-combat-acne/)
 - [honeymoon cysitis](https://wedding.allwomenstalk.com/tips-to-help-you-prevent-getting-honeymoon-cystitis-on-your-honeymoon/)
-- [things to do while sick at home](https://health.allwomenstalk.com/things-to-do-when-you-are-sick/)
-- [uncommon herbs](https://health.allwomenstalk.com/uncommon-herbs-that-are-used-by-herbalists/)
-- [ways to eat honey](https://diy.allwomenstalk.com/ways-to-use-honey-other-than-eating-it/)
 - [7 Ways to Use Foods to Treat Parasites and Yeast i...](https://health.allwomenstalk.com/ways-to-use-foods-to-treat-parasites-and-yeast-in-the-body/)
-- [windburned skin](https://skincare.allwomenstalk.com/top-tips-to-treat-and-prevent-windburn/)
+- [uncommon herbs](https://health.allwomenstalk.com/uncommon-herbs-that-are-used-by-herbalists/)
+- [grandmas home remedies](https://lifestyle.allwomenstalk.com/natural-old-fashioned-remedies-that-your-grandma-swears-by/)
 - [gram lentil soup recipe to delay periods](https://health.allwomenstalk.com/ways-to-delay-your-period-that-are-worth-trying/)
 - [dark circles food](https://skincare.allwomenstalk.com/natural-ways-to-reduce-under-eye-circles/)
+- [ways to eat honey](https://diy.allwomenstalk.com/ways-to-use-honey-other-than-eating-it/)
 - [7 Ways I Love to Try Essential Oils ...](https://allwomenstalk.com/7-ways-i-love-to-try-essential-oils/)
 - [7 Unique Uses for Toothpaste ...](https://allwomenstalk.com/7-unique-uses-for-toothpaste/)
 

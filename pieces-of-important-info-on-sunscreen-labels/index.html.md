@@ -42,15 +42,15 @@ What do you look for in a sunscreen? Will you be checking for any of these thing
 
 ## Related Posts
 
-- [Did You Know You Have Probiotics in Your Skincare](https://skincare.allwomenstalk.com/did-you-know-you-have-probiotics-in-your-skincare/)
-- [The Ultimate Skincare Regimen for Spring ...](https://skincare.allwomenstalk.com/the-ultimate-skincare-regimen-for-spring/)
-- [Botanical Based Beauty Products to Start Using on ...](https://skincare.allwomenstalk.com/botanic-based-products-you-should-start-using-on-your-skin/)
-- [Fab Products to Get You Addicted to  Korean Skinca...](https://skincare.allwomenstalk.com/youre-gonna-be-addicted-to-these-korean-skincare-products/)
-- [21 Awesome Exfoliants to Get Your Skin Spring Read...](https://skincare.allwomenstalk.com/exfoliants-thatll-help-prep-your-skin-for-spring/)
 - [Natural Ingredients to Look for when Purchasing Sk...](https://skincare.allwomenstalk.com/purchase-products-with-these-natural-skincare-ingredients/)
+- [21 Awesome Exfoliants to Get Your Skin Spring Read...](https://skincare.allwomenstalk.com/exfoliants-thatll-help-prep-your-skin-for-spring/)
+- [Buy These Refreshing Citrus Beauty Products ...](https://beauty.allwomenstalk.com/buy-these-refreshing-citrus-beauty-products/)
+- [Did You Know You Have Probiotics in Your Skincare](https://skincare.allwomenstalk.com/did-you-know-you-have-probiotics-in-your-skincare/)
+- [Fab Products to Get You Addicted to  Korean Skinca...](https://skincare.allwomenstalk.com/youre-gonna-be-addicted-to-these-korean-skincare-products/)
 - [The Benefits of Switching to Natural Body Care ...](https://skincare.allwomenstalk.com/the-benefits-of-switching-to-natural-body-care/)
 - [10 Life-changing Skincare Products for Girls with ...](https://skincare.allwomenstalk.com/lifechanging-skincare-products-for-combination-skin/)
-- [Buy These Refreshing Citrus Beauty Products ...](https://beauty.allwomenstalk.com/buy-these-refreshing-citrus-beauty-products/)
+- [Botanical Based Beauty Products to Start Using on ...](https://skincare.allwomenstalk.com/botanic-based-products-you-should-start-using-on-your-skin/)
+- [The Ultimate Skincare Regimen for Spring ...](https://skincare.allwomenstalk.com/the-ultimate-skincare-regimen-for-spring/)
 - [magic of aloe](https://health.allwomenstalk.com/you-wont-believe-how-much-magic-there-is-in-aloe-vera-juice/)
 - [7 Things You Didnt Know about Sunscreen ...](https://skincare.allwomenstalk.com/things-you-didnt-know-about-sunscreen/)
 - [7 Foods to Protect from Sun Damage ...](https://skincare.allwomenstalk.com/foods-to-protect-from-sun-damage/)

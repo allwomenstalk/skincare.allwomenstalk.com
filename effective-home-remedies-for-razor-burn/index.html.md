@@ -68,16 +68,16 @@ I hope you try out one of these remedies for razor burn. Keep in mind that preve
 
 ## Related Posts
 
-- [poses that help with period cramps](https://fitness.allwomenstalk.com/great-yoga-poses-to-relieve-menstrual-cramps/)
+- [how to prevent muscle fatigue](https://fitness.allwomenstalk.com/ways-to-ease-muscle-fatigue/)
 - [almond milk instead of heavy cream](https://food.allwomenstalk.com/useful-ways-to-use-almond-milk-instead-of-dairy/)
 - [use borax](https://diy.allwomenstalk.com/ways-you-can-use-borax/)
 - [qtips travel](https://diy.allwomenstalk.com/clever-ways-to-use-q-tips/)
-- [fingertip pain guitar](https://music.allwomenstalk.com/ways-to-combat-finger-soreness-from-guitar-playing/)
-- [ayurvedic spices for digestion](https://health.allwomenstalk.com/ayurvedic-spices-that-will-put-an-end-to-your-tummy-troubles/)
-- [fruits and vegetables highest in vitamin c](https://food.allwomenstalk.com/sources-of-vitamin-c-to-help-you-cope-with-stress/)
 - [essential oil first aid kit](https://health.allwomenstalk.com/essential-oils-for-your-first-aid-kit/)
 - [why does ginger burn my throat](https://health.allwomenstalk.com/detox-symptoms-and-how-to-avoid-them/)
-- [how to prevent muscle fatigue](https://fitness.allwomenstalk.com/ways-to-ease-muscle-fatigue/)
+- [fruits and vegetables highest in vitamin c](https://food.allwomenstalk.com/sources-of-vitamin-c-to-help-you-cope-with-stress/)
+- [ayurvedic spices for digestion](https://health.allwomenstalk.com/ayurvedic-spices-that-will-put-an-end-to-your-tummy-troubles/)
+- [fingertip pain guitar](https://music.allwomenstalk.com/ways-to-combat-finger-soreness-from-guitar-playing/)
+- [poses that help with period cramps](https://fitness.allwomenstalk.com/great-yoga-poses-to-relieve-menstrual-cramps/)
 - [7 Tips on Preventing Razor Bumps ...](https://skincare.allwomenstalk.com/7-tips-on-preventing-razor-bumps/)
 - [12 Best Home Remedies for Pimples ...](https://allwomenstalk.com/12-best-home-remedies-for-pimples/)
 

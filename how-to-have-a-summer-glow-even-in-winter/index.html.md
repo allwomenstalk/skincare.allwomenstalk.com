@@ -33,16 +33,16 @@ It might be cold outside, but you should aim to eat as if you were relaxing in a
 
 ## Related Posts
 
-- [Fight SAD with These Easy Ways to Stay Happy in a ...](https://health.allwomenstalk.com/fight-sad-with-these-easy-ways-to-stay-happy-in-a-dark-cold-winter/)
-- [Pro Tips to Get Rid of the Winter Blues ...](https://health.allwomenstalk.com/pro-tips-to-get-rid-of-the-winter-blues/)
-- [These Wintertime Health Habits Will Add Years to Y...](https://health.allwomenstalk.com/these-wintertime-health-habits-will-add-years-to-your-life/)
-- [Best Ways to Get More Vitamin D in Winter ...](https://health.allwomenstalk.com/best-ways-to-get-more-vitamin-d-in-winter/)
-- [How to Avoid Emotional Eating in the Winter ...](https://diet.allwomenstalk.com/how-to-avoid-emotional-eating-in-the-winter/)
+- [5 Remedies to Beat Colds and Flu in Cold Weather ....](https://health.allwomenstalk.com/remedies-to-beat-colds-and-flu-in-cold-weather/)
 - [My Favorite Winter Skincare Tips ...](https://skincare.allwomenstalk.com/my-favorite-winter-skincare-tips/)
 - [10 Great Ways to Warm up on a Cold Day ...](https://health.allwomenstalk.com/great-ways-to-warm-up-on-a-cold-day/)
-- [how to avoid winter weight gain](https://weightloss.allwomenstalk.com/how-to-avoid-weight-gain-in-the-winter/)
+- [Pro Tips to Get Rid of the Winter Blues ...](https://health.allwomenstalk.com/pro-tips-to-get-rid-of-the-winter-blues/)
 - [Video Guide to Winter Survival when You Dont like ...](https://health.allwomenstalk.com/video-guide-to-winter-survival-when-you-dont-like-the-cold/)
-- [5 Remedies to Beat Colds and Flu in Cold Weather ....](https://health.allwomenstalk.com/remedies-to-beat-colds-and-flu-in-cold-weather/)
+- [How to Avoid Emotional Eating in the Winter ...](https://diet.allwomenstalk.com/how-to-avoid-emotional-eating-in-the-winter/)
+- [how to avoid winter weight gain](https://weightloss.allwomenstalk.com/how-to-avoid-weight-gain-in-the-winter/)
+- [These Wintertime Health Habits Will Add Years to Y...](https://health.allwomenstalk.com/these-wintertime-health-habits-will-add-years-to-your-life/)
+- [Best Ways to Get More Vitamin D in Winter ...](https://health.allwomenstalk.com/best-ways-to-get-more-vitamin-d-in-winter/)
+- [Fight SAD with These Easy Ways to Stay Happy in a ...](https://health.allwomenstalk.com/fight-sad-with-these-easy-ways-to-stay-happy-in-a-dark-cold-winter/)
 - [Summer is Coming: This is How to Prep Your Skin fo...](https://skincare.allwomenstalk.com/summer-is-coming-this-is-how-to-prep-your-skin-for-the-beach/)
 - [The Adventurous Girls Guide to Looking Outstanding...](https://beauty.allwomenstalk.com/the-adventurous-girls-guide-to-looking-outstanding-outdoors-even-in-summer/)
 

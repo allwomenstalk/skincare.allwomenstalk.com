@@ -46,16 +46,16 @@ Top image source: [data.whicdn.com](http://data.whicdn.com/images/10681903/tumbl
 
 ## Related Posts
 
-- [8 Reasons Not to Fear Major Birthdays ...](https://lifestyle.allwomenstalk.com/reasons-not-to-fear-major-birthdays/)
-- [7 Reasons for Abortion ...](https://parenting.allwomenstalk.com/reasons-for-abortion/)
 - [7 Reasons Why Celebrities Shouldnt Tweet ...](https://celebs.allwomenstalk.com/reasons-why-celebrities-shouldnt-tweet/)
 - [7 Good Reasons Not to Be Ashamed of Mental Health ...](https://health.allwomenstalk.com/good-reasons-not-to-be-ashamed-of-mental-health-problems/)
-- [why not go to school](https://parenting.allwomenstalk.com/7-reasons-children-do-not-want-to-go-to-school/)
-- [teen lie](https://parenting.allwomenstalk.com/7-reasons-never-to-lie-to-your-teen/)
 - [7 Reasons to Avoid Loud Music ...](https://health.allwomenstalk.com/7-reasons-to-avoid-loud-music/)
 - [7 Shrewdly Clever Reasons to Avoid a Dating Type ....](https://love.allwomenstalk.com/shrewdly-clever-reasons-to-avoid-a-dating-type/)
-- [7 Reasons to Ignore Advice on Parenting ...](https://parenting.allwomenstalk.com/7-reasons-to-ignore-advice-on-parenting/)
 - [why do i want to get pregnant so bad](https://parenting.allwomenstalk.com/8-of-the-worst-reasons-to-get-pregnant/)
+- [teen lie](https://parenting.allwomenstalk.com/7-reasons-never-to-lie-to-your-teen/)
+- [8 Reasons Not to Fear Major Birthdays ...](https://lifestyle.allwomenstalk.com/reasons-not-to-fear-major-birthdays/)
+- [7 Reasons to Ignore Advice on Parenting ...](https://parenting.allwomenstalk.com/7-reasons-to-ignore-advice-on-parenting/)
+- [7 Reasons for Abortion ...](https://parenting.allwomenstalk.com/reasons-for-abortion/)
+- [why not go to school](https://parenting.allwomenstalk.com/7-reasons-children-do-not-want-to-go-to-school/)
 - [5 Ways to Stay Safe from the Sun  for a Vampire .....](https://twilight.allwomenstalk.com/5-ways-to-stay-safe-from-the-sun/)
 - [7 Ways to Repair Sun Damage ...](https://skincare.allwomenstalk.com/ways-to-repair-sun-damage/)
 

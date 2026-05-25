@@ -76,16 +76,16 @@ All this talk of awesome smelling body washes makes me want to take another show
 
 ## Related Posts
 
+- [scents of summer](https://perfumes.allwomenstalk.com/scents-for-summer/)
+- [facts about perfumes](https://perfumes.allwomenstalk.com/interesting-facts-about-perfumes/)
 - [best scents for meditation](https://twilight.allwomenstalk.com/5-relaxing-scents-for-meditation/)
 - [10 Popular Scents in Perfumes and Colognes ...](https://perfumes.allwomenstalk.com/popular-scents-in-perfumes-and-colognes/)
 - [7 Summer Perfumes I Adore ...](https://perfumes.allwomenstalk.com/summer-perfumes-i-adore/)
-- [enchanted perfumes](https://perfumes.allwomenstalk.com/best-and-fabulously-enchanting-scents-ever/)
-- [facts about perfumes](https://perfumes.allwomenstalk.com/interesting-facts-about-perfumes/)
-- [scents of summer](https://perfumes.allwomenstalk.com/scents-for-summer/)
+- [alternative for perfume](https://perfumes.allwomenstalk.com/alternatives-to-retail-perfumes/)
 - [riche stylo infinite sky](https://perfumes.allwomenstalk.com/most-charmingly-memorable-scents-for-men-this-christmas/)
 - [good smelling man](https://perfumes.allwomenstalk.com/best-colognes-for-men-to-keep-him-smelling-great/)
+- [enchanted perfumes](https://perfumes.allwomenstalk.com/best-and-fabulously-enchanting-scents-ever/)
 - [perfumes franceses](https://perfumes.allwomenstalk.com/classic-french-perfumes/)
-- [alternative for perfume](https://perfumes.allwomenstalk.com/alternatives-to-retail-perfumes/)
 - [10 Amazing LUSH Products for Your Bath ...](https://skincare.allwomenstalk.com/10-amazing-lush-products-for-your-bath/)
 - [8 Luxurious Body Lotions ...](https://skincare.allwomenstalk.com/8-luxurious-body-lotions/)
 

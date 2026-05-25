@@ -74,16 +74,16 @@ What do you like adding to your bath? Will you try any of these add-ins?
 
 ## Related Posts
 
-- [crave skincare](https://skincare.allwomenstalk.com/homemade-lotion-recipes-thatll-give-you-smoother-skin/)
-- [shea moisture head to toe](https://skincare.allwomenstalk.com/skincare-products-that-look-lovely-on-black-ladies/)
 - [what are the best neck creams](https://skincare.allwomenstalk.com/the-best-neck-creams-for-girls-afraid-of-saggy-skin/)
-- [anti redness foundation](https://skincare.allwomenstalk.com/amazing-products-for-women-that-struggle-with-skin-redness/)
-- [shiny face skin](https://skincare.allwomenstalk.com/diy-face-masks-for-girls-with-shiny-skin/)
 - [two ingredient face mask](https://skincare.allwomenstalk.com/two-ingredient-face-masks-you-can-make-right-at-home/)
-- [hand exfoliator diy](https://skincare.allwomenstalk.com/diy-scrubs-for-girls-who-want-soft-hands/)
-- [in-shower lotion bar recipe](https://diy.allwomenstalk.com/girls-who-prefer-natural-skincare-can-make-these-lotion-bars-at-home/)
 - [light foundation oily skin](https://makeup.allwomenstalk.com/lightweight-foundations-for-oily-skin-to-buy-this-summer/)
+- [anti redness foundation](https://skincare.allwomenstalk.com/amazing-products-for-women-that-struggle-with-skin-redness/)
+- [shea moisture head to toe](https://skincare.allwomenstalk.com/skincare-products-that-look-lovely-on-black-ladies/)
 - [prone girls](https://skincare.allwomenstalk.com/diy-face-masks-for-girls-who-are-acne-prone/)
+- [in-shower lotion bar recipe](https://diy.allwomenstalk.com/girls-who-prefer-natural-skincare-can-make-these-lotion-bars-at-home/)
+- [crave skincare](https://skincare.allwomenstalk.com/homemade-lotion-recipes-thatll-give-you-smoother-skin/)
+- [hand exfoliator diy](https://skincare.allwomenstalk.com/diy-scrubs-for-girls-who-want-soft-hands/)
+- [shiny face skin](https://skincare.allwomenstalk.com/diy-face-masks-for-girls-with-shiny-skin/)
 - [10 Amazing LUSH Products for Your Bath ...](https://skincare.allwomenstalk.com/10-amazing-lush-products-for-your-bath/)
 - [10 Best Bath Products for Baby ...](https://allwomenstalk.com/10-best-bath-products-for-baby/)
 

@@ -61,15 +61,15 @@ Make sure to protect your eyes from the rays by wearing a good pair of quality s
 ## Related Posts
 
 - [Are You  Drinking Enough Water](https://health.allwomenstalk.com/are-you-drinking-enough-water/)
-- [do opposites really attract](https://love.allwomenstalk.com/do-opposites-really-attract/)
-- [Where is  the Metoo Headed](https://lifestyle.allwomenstalk.com/where-is-metoo-heading/)
 - [Is Your Best Friend Who Keeps Attacking You Really...](https://inspiration.allwomenstalk.com/is-your-best-friend-who-keeps-attacking-you-really-your-best-friend/)
 - [Are You in a Negotiation with Abuse](https://inspiration.allwomenstalk.com/are-you-in-a-negotiation-with-abuse/)
+- [do opposites really attract](https://love.allwomenstalk.com/do-opposites-really-attract/)
+- [Where is  the Metoo Headed](https://lifestyle.allwomenstalk.com/where-is-metoo-heading/)
 - [What is  Your Dieting Personality](https://weightloss.allwomenstalk.com/what-is-your-dieting-personality/)
 - [Would You  Eat These Weird Celeb Fave Foods](https://food.allwomenstalk.com/would-you-eat-these-weird-fave-foods-of-celebs/)
+- [How Safe  is Marijuana during Pregnancy](https://parenting.allwomenstalk.com/how-safe-is-marijuana-during-pregnancy/)
 - [Are You at Risk of Skin Cancer](https://skincare.allwomenstalk.com/are-you-at-risk-of-skin-cancer/)
 - [Is Your Beauty Routine Harming the Planet](https://beauty.allwomenstalk.com/is-your-beauty-routine-harming-the-planet/)
-- [How Safe  is Marijuana during Pregnancy](https://parenting.allwomenstalk.com/how-safe-is-marijuana-during-pregnancy/)
 - [10 Tips on How to Put Sunscreen on Your Own Back ....](https://allwomenstalk.com/single-person-needs-how-to-put-sunscreen-on-your-own-back/)
 - [Summer Skin Alert FDA Changes Rules about Sunscree...](https://allwomenstalk.com/summer-skin-alert-fda-changes-rules-about-sunscreen/)
 

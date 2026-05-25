@@ -26,16 +26,16 @@ Swap out your heavy foundation for a lighter formula like a BB cream with a hint
 
 ## Related Posts
 
-- [The Greatest Eyeliner Tips Youll Ever Find Are Rig...](https://makeup.allwomenstalk.com/the-greatest-eyeliner-tips-youll-ever-find-are-right-here/)
-- [how to apply foundation flawlessly](https://makeup.allwomenstalk.com/how-to-apply-foundation/)
-- [Pro Tips for Getting Natural Looking Makeup ...](https://makeup.allwomenstalk.com/pro-tips-for-getting-natural-looking-makeup/)
-- [Fabulous Tips on How to Be Better at Applyig Makeu...](https://makeup.allwomenstalk.com/how-to-be-better-at-applying-makeup/)
-- [loreal color stylo smoky shadow garnet](https://beauty.allwomenstalk.com/the-latest-beauty-trend-on-instagram-squigglebrows/)
-- [guy eye liner](https://makeup.allwomenstalk.com/what-guys-really-think-about-makeup/)
 - [Tips for Caring for Eyelash Extensions without Rui...](https://beauty.allwomenstalk.com/tips-for-caring-for-eyelash-extensions/)
-- [paris le stylo eye shadow amber](https://makeup.allwomenstalk.com/concealer-tricks-every-woman-needs-to-know/)
-- [How do I Make My Makeup Last All Day](https://makeup.allwomenstalk.com/how-do-i-make-my-makeup-last-all-day/)
+- [The Greatest Eyeliner Tips Youll Ever Find Are Rig...](https://makeup.allwomenstalk.com/the-greatest-eyeliner-tips-youll-ever-find-are-right-here/)
+- [Fabulous Tips on How to Be Better at Applyig Makeu...](https://makeup.allwomenstalk.com/how-to-be-better-at-applying-makeup/)
+- [guy eye liner](https://makeup.allwomenstalk.com/what-guys-really-think-about-makeup/)
 - [Try These Practical Makeup Tricks to Improve Your ...](https://makeup.allwomenstalk.com/practical-makeup-tricks-that-will-improve-your-technique/)
+- [how to apply foundation flawlessly](https://makeup.allwomenstalk.com/how-to-apply-foundation/)
+- [How do I Make My Makeup Last All Day](https://makeup.allwomenstalk.com/how-do-i-make-my-makeup-last-all-day/)
+- [loreal color stylo smoky shadow garnet](https://beauty.allwomenstalk.com/the-latest-beauty-trend-on-instagram-squigglebrows/)
+- [paris le stylo eye shadow amber](https://makeup.allwomenstalk.com/concealer-tricks-every-woman-needs-to-know/)
+- [Pro Tips for Getting Natural Looking Makeup ...](https://makeup.allwomenstalk.com/pro-tips-for-getting-natural-looking-makeup/)
 - [7 Quick Make-up Fixes for a Tired Face ...](https://makeup.allwomenstalk.com/7-quick-make-up-fixes-for-a-tired-face/)
 - [10 Top Tips for Applying Quick Makeup ...](https://beauty.allwomenstalk.com/top-tips-for-applying-quick-makeup/)
 

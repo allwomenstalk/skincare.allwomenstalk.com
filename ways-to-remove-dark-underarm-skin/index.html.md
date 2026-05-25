@@ -38,15 +38,15 @@ Mix all ingredients and apply to dark underarm or dark neck areas after scrubbin
 
 ## Related Posts
 
-- [how to apply sunscreen to your back](https://skincare.allwomenstalk.com/pro-tips-on-how-to-put-sunscreen-your-own-back/)
 - [treatyourskin](https://skincare.allwomenstalk.com/how-to-treat-your-skin-with-respect/)
+- [how to make face glow naturally overnight](https://skincare.allwomenstalk.com/simple-ways-to-make-your-skin-glow-overnight/)
 - [tissue test for skin type](https://skincare.allwomenstalk.com/how-to-do-the-tissue-test-to-determine-your-skin-type/)
 - [when do tan lines go away](https://skincare.allwomenstalk.com/how-to-make-weird-tan-lines-fade-quickly/)
-- [does a tan hide cellulite](https://skincare.allwomenstalk.com/make-cellulite-less-noticeable-with-these-helpful-tips-and-tricks/)
-- [glycerin for cracked heels](https://skincare.allwomenstalk.com/tips-for-getting-rid-of-cracked-heels-and-dry-skin/)
 - [sun safety tips](https://skincare.allwomenstalk.com/tips-for-staying-safe-in-the-sun/)
 - [baby shoulder dimples](https://beauty.allwomenstalk.com/steps-to-take-if-you-want-dimples/)
-- [how to make face glow naturally overnight](https://skincare.allwomenstalk.com/simple-ways-to-make-your-skin-glow-overnight/)
+- [does a tan hide cellulite](https://skincare.allwomenstalk.com/make-cellulite-less-noticeable-with-these-helpful-tips-and-tricks/)
+- [glycerin for cracked heels](https://skincare.allwomenstalk.com/tips-for-getting-rid-of-cracked-heels-and-dry-skin/)
+- [how to apply sunscreen to your back](https://skincare.allwomenstalk.com/pro-tips-on-how-to-put-sunscreen-your-own-back/)
 - [things to achieve by 30](https://skincare.allwomenstalk.com/things-to-do-to-achieve-healthy-skin-in-30-days/)
 - [A Few Tips to Get Your Skin in Tip-Top Shape ...](https://allwomenstalk.com/a-few-tips-to-get-your-skin-in-tip-top-shape/)
 - [10 Ways to Prevent Getting Dark under-Eye Circles ...](https://allwomenstalk.com/10-ways-to-prevent-getting-dark-under-eye-circles/)

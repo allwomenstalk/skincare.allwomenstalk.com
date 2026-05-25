@@ -32,16 +32,16 @@ It doesn’t take a genius to work out that moles put you at a bigger risk of sk
 
 ## Related Posts
 
-- [How Safe  is Marijuana during Pregnancy](https://parenting.allwomenstalk.com/how-safe-is-marijuana-during-pregnancy/)
-- [Is Your Best Friend Who Keeps Attacking You Really...](https://inspiration.allwomenstalk.com/is-your-best-friend-who-keeps-attacking-you-really-your-best-friend/)
-- [Is Your Beauty Routine Harming the Planet](https://beauty.allwomenstalk.com/is-your-beauty-routine-harming-the-planet/)
-- [Where is  the Metoo Headed](https://lifestyle.allwomenstalk.com/where-is-metoo-heading/)
-- [do opposites really attract](https://love.allwomenstalk.com/do-opposites-really-attract/)
-- [Are You in a Negotiation with Abuse](https://inspiration.allwomenstalk.com/are-you-in-a-negotiation-with-abuse/)
 - [Are You  Drinking Enough Water](https://health.allwomenstalk.com/are-you-drinking-enough-water/)
-- [Which is the Best Type of Yoga for You](https://fitness.allwomenstalk.com/which-is-the-best-type-of-yoga-for-you/)
 - [What is  Your Dieting Personality](https://weightloss.allwomenstalk.com/what-is-your-dieting-personality/)
 - [Would You  Eat These Weird Celeb Fave Foods](https://food.allwomenstalk.com/would-you-eat-these-weird-fave-foods-of-celebs/)
+- [do opposites really attract](https://love.allwomenstalk.com/do-opposites-really-attract/)
+- [Are You in a Negotiation with Abuse](https://inspiration.allwomenstalk.com/are-you-in-a-negotiation-with-abuse/)
+- [Which is the Best Type of Yoga for You](https://fitness.allwomenstalk.com/which-is-the-best-type-of-yoga-for-you/)
+- [How Safe  is Marijuana during Pregnancy](https://parenting.allwomenstalk.com/how-safe-is-marijuana-during-pregnancy/)
+- [Is Your Beauty Routine Harming the Planet](https://beauty.allwomenstalk.com/is-your-beauty-routine-harming-the-planet/)
+- [Is Your Best Friend Who Keeps Attacking You Really...](https://inspiration.allwomenstalk.com/is-your-best-friend-who-keeps-attacking-you-really-your-best-friend/)
+- [Where is  the Metoo Headed](https://lifestyle.allwomenstalk.com/where-is-metoo-heading/)
 - [Skin Care Advice at Any Age](https://allwomenstalk.com/skin-care-advice-at-any-age/)
 - [Are You Wearing the Right Foundation](https://makeup.allwomenstalk.com/are-you-wearing-the-right-foundation/)
 

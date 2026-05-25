@@ -56,16 +56,16 @@ While there are more invasive ways to treat keloid scars, I wanted to share some
 
 ## Related Posts
 
+- [suzy shuster instagram](https://skincare.allwomenstalk.com/dietary-solutions-to-reduce-acne-in-just-two-weeks/)
+- [does candy cause acne](https://beauty.allwomenstalk.com/foods-that-ruin-your-skin/)
 - [tips for younger skin](https://skincare.allwomenstalk.com/anti-aging-tips-for-younger-skin/)
 - [skin care myths](https://skincare.allwomenstalk.com/skin-care-myths-debunked/)
-- [perfect skin close up](https://food.allwomenstalk.com/ingredients-in-your-pantry-that-can-give-you-clear-skin/)
 - [home remedy for skin care](https://skincare.allwomenstalk.com/home-remedies-for-skin-care-issues/)
-- [dry climate skin care](https://skincare.allwomenstalk.com/lifestyle-and-skin-care-tips-for-dry-climates/)
-- [does candy cause acne](https://beauty.allwomenstalk.com/foods-that-ruin-your-skin/)
-- [cortisone cream razor bumps](https://skincare.allwomenstalk.com/honest-to-goodness-tips-on-preventing-and-treating-bikini-bumps/)
-- [peanuts acne](https://food.allwomenstalk.com/seemingly-healthy-foods-that-can-cause-acne-and-bad-skin/)
-- [suzy shuster instagram](https://skincare.allwomenstalk.com/dietary-solutions-to-reduce-acne-in-just-two-weeks/)
+- [perfect skin close up](https://food.allwomenstalk.com/ingredients-in-your-pantry-that-can-give-you-clear-skin/)
 - [best moisturiser for swimmers](https://skincare.allwomenstalk.com/fabulous-skin-and-hair-care-tips-for-swimmers/)
+- [peanuts acne](https://food.allwomenstalk.com/seemingly-healthy-foods-that-can-cause-acne-and-bad-skin/)
+- [cortisone cream razor bumps](https://skincare.allwomenstalk.com/honest-to-goodness-tips-on-preventing-and-treating-bikini-bumps/)
+- [dry climate skin care](https://skincare.allwomenstalk.com/lifestyle-and-skin-care-tips-for-dry-climates/)
 - [8 Acne Scar Treatments to Try ...](https://skincare.allwomenstalk.com/acne-scar-treatments-to-try/)
 - [10 Ways to Treat Acne Scars ...](https://allwomenstalk.com/10-ways-to-treat-acne-scars/)
 

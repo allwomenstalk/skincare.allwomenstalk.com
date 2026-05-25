@@ -130,16 +130,16 @@ This lip balm and sunscreen does everything all these other ones do, plus it hel
 
 ## Related Posts
 
-- [Check out the Marble Lip Trend Instagrammers Cant ...](https://makeup.allwomenstalk.com/check-out-the-marble-lip-trend-instagrammers-cant-get-enough-of/)
 - [The Best Red Lipsticks of 2017 to Rock Next Year ....](https://makeup.allwomenstalk.com/the-best-red-lipsticks/)
-- [christian louboutin pink loubiminette 105s lipstic...](https://makeup.allwomenstalk.com/be-daring-and-try-these-bold-lipsticks-today/)
-- [Easy Tips for Maintaining Healthy Lips for a Gorge...](https://skincare.allwomenstalk.com/tips-for-maintaining-healthy-lips/)
-- [How to Choose Your Best Lip Color for Valentines D...](https://makeup.allwomenstalk.com/how-to-choose-your-best-lip-colour-for-valentines-day/)
-- [estee edit mattified lipstick swatches](https://makeup.allwomenstalk.com/hottest-fall-lipsticks-already-hitting-the-shelves/)
+- [Popular Lipsticks of 2017 You Need ASAP if Youre a...](https://makeup.allwomenstalk.com/popular-lipsticks-of-you-need-asap-if-youre-a-makeup-addict/)
 - [Pro Tips on How to Choose the Right Lipstick Shade...](https://makeup.allwomenstalk.com/tips-for-choosing-the-right-lipstick-shade/)
 - [The Ultimate Guide to the Best Mascaras for All Yo...](https://makeup.allwomenstalk.com/the-ultimate-guide-to-the-best-mascaras-for-all-your-lash-needs/)
-- [Popular Lipsticks of 2017 You Need ASAP if Youre a...](https://makeup.allwomenstalk.com/popular-lipsticks-of-you-need-asap-if-youre-a-makeup-addict/)
+- [Check out the Marble Lip Trend Instagrammers Cant ...](https://makeup.allwomenstalk.com/check-out-the-marble-lip-trend-instagrammers-cant-get-enough-of/)
+- [estee edit mattified lipstick swatches](https://makeup.allwomenstalk.com/hottest-fall-lipsticks-already-hitting-the-shelves/)
+- [christian louboutin pink loubiminette 105s lipstic...](https://makeup.allwomenstalk.com/be-daring-and-try-these-bold-lipsticks-today/)
+- [Easy Tips for Maintaining Healthy Lips for a Gorge...](https://skincare.allwomenstalk.com/tips-for-maintaining-healthy-lips/)
 - [Mistakes Making Your Chapped Lips Worse ...](https://skincare.allwomenstalk.com/chapped-lip-mistakes/)
+- [How to Choose Your Best Lip Color for Valentines D...](https://makeup.allwomenstalk.com/how-to-choose-your-best-lip-colour-for-valentines-day/)
 - [7 of My Favorite Sunscreens ...](https://skincare.allwomenstalk.com/of-my-favorite-sunscreens/)
 - [7 Ways to Protect Your Skin This Summer ...](https://allwomenstalk.com/7-ways-to-protect-your-skin-this-summer/)
 

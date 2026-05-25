@@ -44,16 +44,16 @@ Do you get whiteheads? I’ve had my fair share and they aren’t pretty or comf
 
 ## Related Posts
 
-- [how to get rid of facial hairs](https://beauty.allwomenstalk.com/ways-to-get-rid-of-facial-hair/)
 - [lemon juice for freckles](https://skincare.allwomenstalk.com/ways-to-reduce-freckles/)
-- [how to look paler](https://skincare.allwomenstalk.com/ways-to-perk-up-your-pale-winter-skin/)
-- [beach skin care](https://skincare.allwomenstalk.com/ultra-valuable-beach-skincare-tips/)
-- [how to wash your face while camping](https://skincare.allwomenstalk.com/super-easy-camping-skincare-tips-you-can-use-for-the-rest-of-the-summer/)
-- [microdermabrasion for feet](https://skincare.allwomenstalk.com/things-you-should-know-about-microdermabrasion/)
-- [ellen marmur](https://skincare.allwomenstalk.com/celebrity-dermatologists-and-their-skincare-advice/)
+- [is a humidifier good for acne](https://skincare.allwomenstalk.com/things-to-know-about-using-a-humidifier-for-dry-skin/)
 - [is salt scrub good for your skin](https://skincare.allwomenstalk.com/things-to-know-about-salt-scrubs-for-your-skin/)
 - [skincare tips that cost nothing](https://skincare.allwomenstalk.com/ways-to-improve-your-skin-without-spending-money/)
-- [is a humidifier good for acne](https://skincare.allwomenstalk.com/things-to-know-about-using-a-humidifier-for-dry-skin/)
+- [microdermabrasion for feet](https://skincare.allwomenstalk.com/things-you-should-know-about-microdermabrasion/)
+- [ellen marmur](https://skincare.allwomenstalk.com/celebrity-dermatologists-and-their-skincare-advice/)
+- [how to wash your face while camping](https://skincare.allwomenstalk.com/super-easy-camping-skincare-tips-you-can-use-for-the-rest-of-the-summer/)
+- [how to look paler](https://skincare.allwomenstalk.com/ways-to-perk-up-your-pale-winter-skin/)
+- [beach skin care](https://skincare.allwomenstalk.com/ultra-valuable-beach-skincare-tips/)
+- [how to get rid of facial hairs](https://beauty.allwomenstalk.com/ways-to-get-rid-of-facial-hair/)
 - [7 Acne Myths You Should Know ...](https://skincare.allwomenstalk.com/acne-myths-you-should-know/)
 - [12 Facts about Acne You Didnt Know ...](https://allwomenstalk.com/12-facts-about-acne-you-didnt-know/)
 

@@ -43,15 +43,15 @@ Have you ever brought something nasty home from the gym? How did you treat it? I
 ## Related Posts
 
 - [benefits of bodyweight training](https://fitness.allwomenstalk.com/amazing-benefits-of-bodyweight-exercises/)
-- [perfect body ebony](https://fitness.allwomenstalk.com/best-exercise-infographics-for-your-perfect-body/)
-- [site:allwomenstalk.com](https://fitness.allwomenstalk.com/heart-rate-variability-training-workouts/)
-- [trouble spots](https://fitness.allwomenstalk.com/exercises-to-tone-your-trouble-spots/)
-- [does yoga make you flexible](https://fitness.allwomenstalk.com/yoga-poses-to-help-you-become-more-flexible/)
 - [get in shape in two weeks](https://fitness.allwomenstalk.com/workouts-to-get-you-in-your-best-shape-in-2-weeks/)
 - [gym once a week](https://fitness.allwomenstalk.com/top-benefits-of-going-to-the-gym-every-week/)
-- [jada pinkett smith fitness](https://fitness.allwomenstalk.com/better-butt-workouts-from-jada-pinkett-smith/)
-- [magic carpet yoga mat](https://fitness.allwomenstalk.com/fantastic-yoga-mats-for-your-next-session/)
+- [trouble spots](https://fitness.allwomenstalk.com/exercises-to-tone-your-trouble-spots/)
+- [site:allwomenstalk.com](https://fitness.allwomenstalk.com/heart-rate-variability-training-workouts/)
+- [perfect body ebony](https://fitness.allwomenstalk.com/best-exercise-infographics-for-your-perfect-body/)
+- [does yoga make you flexible](https://fitness.allwomenstalk.com/yoga-poses-to-help-you-become-more-flexible/)
 - [how to recover quickly from a workout](https://fitness.allwomenstalk.com/ways-to-recover-quicklyfrom-your-workouts/)
+- [magic carpet yoga mat](https://fitness.allwomenstalk.com/fantastic-yoga-mats-for-your-next-session/)
+- [jada pinkett smith fitness](https://fitness.allwomenstalk.com/better-butt-workouts-from-jada-pinkett-smith/)
 - [7 Ways to Avoid Illness in the Gym ...](https://health.allwomenstalk.com/7-ways-to-avoid-illness-in-the-gym/)
 - [7 Ways to Motivate Yourself at the Gym ...](https://allwomenstalk.com/7-ways-to-motivate-yourself-at-the-gym/)
 

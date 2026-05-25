@@ -56,16 +56,16 @@ Top Photo Credit: [cellulite187](https://www.flickr.com/photos/50142730@N02/4615
 
 ## Related Posts
 
-- [does vaseline work for under eye bags](https://beauty.allwomenstalk.com/great-remedies-for-puffy-eyes/)
-- [5 Healing Herbs ...](https://gardening.allwomenstalk.com/5-healing-herbs/)
 - [uses for avocado oil](https://cooking.allwomenstalk.com/ways-to-use-infused-avocado-oils/)
-- [5 Ways to Get Rid of Ants ...](https://gardening.allwomenstalk.com/5-ways-to-get-rid-of-ants/)
-- [5 Herbs to Help a Sore Throat ...](https://gardening.allwomenstalk.com/5-herbs-to-help-a-sore-throat/)
-- [7 Impressively Potent Remedies for Those Painfully...](https://health.allwomenstalk.com/impressively-potent-remedies-for-those-painfully-pesky-migraines/)
+- [5 Healing Herbs ...](https://gardening.allwomenstalk.com/5-healing-herbs/)
 - [foods that help with pain](https://food.allwomenstalk.com/foods-that-help-ease-pain-naturally/)
-- [7 Practical Tips to Deal with Headaches ...](https://health.allwomenstalk.com/practical-tips-to-deal-with-headaches/)
-- [5 Tips on Getting Rid of Mosquitoes ...](https://gardening.allwomenstalk.com/5-tips-on-getting-rid-of-mosquitoes/)
 - [8 Ways to Tackle That Monster Migraine ...](https://health.allwomenstalk.com/8-ways-to-tackle-that-monster-migraine/)
+- [7 Practical Tips to Deal with Headaches ...](https://health.allwomenstalk.com/practical-tips-to-deal-with-headaches/)
+- [does vaseline work for under eye bags](https://beauty.allwomenstalk.com/great-remedies-for-puffy-eyes/)
+- [5 Herbs to Help a Sore Throat ...](https://gardening.allwomenstalk.com/5-herbs-to-help-a-sore-throat/)
+- [5 Tips on Getting Rid of Mosquitoes ...](https://gardening.allwomenstalk.com/5-tips-on-getting-rid-of-mosquitoes/)
+- [5 Ways to Get Rid of Ants ...](https://gardening.allwomenstalk.com/5-ways-to-get-rid-of-ants/)
+- [7 Impressively Potent Remedies for Those Painfully...](https://health.allwomenstalk.com/impressively-potent-remedies-for-those-painfully-pesky-migraines/)
 - [7 Secrets to Banish Cellulite ...](https://skincare.allwomenstalk.com/secrets-to-banish-cellulite/)
 - [10 New Ways to Achieve Healthy Looking Skin ...](https://skincare.allwomenstalk.com/new-ways-to-achieve-healthy-looking-skin/)
 

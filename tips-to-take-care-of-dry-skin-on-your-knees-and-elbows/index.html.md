@@ -46,15 +46,15 @@ I hope my tips have given you hope, and a little inspiration… because it’s t
 
 ## Related Posts
 
-- [best ways to exfoliate skin](https://skincare.allwomenstalk.com/inventive-ways-to-exfoliate-your-skin/)
-- [witch hazel benefits for the face](https://skincare.allwomenstalk.com/reasons-to-add-witch-hazel-in-your-skin-care-routine/)
-- [foundation to cover pigmentation](https://skincare.allwomenstalk.com/foolproof-ways-to-cover-up-pigmentation/)
-- [baking soda uses for skin](https://skincare.allwomenstalk.com/ways-to-get-beautiful-skin-with-baking-soda/)
-- [exfoliate benefits](https://skincare.allwomenstalk.com/top-notch-benefits-of-exfoliating-your-skin/)
-- [milk of magnesia for oily skin](https://skincare.allwomenstalk.com/amazing-tips-to-calm-an-oily-t-zone/)
-- [dcolletage](https://skincare.allwomenstalk.com/super-tips-on-caring-for-your-decolletage/)
-- [does cold showers cause acne](https://skincare.allwomenstalk.com/helpful-tricks-and-tips-for-keratosis-pilaris/)
 - [how to clear hormonal.acne](https://skincare.allwomenstalk.com/ways-to-treat-hormonal-acne/)
+- [dcolletage](https://skincare.allwomenstalk.com/super-tips-on-caring-for-your-decolletage/)
+- [baking soda uses for skin](https://skincare.allwomenstalk.com/ways-to-get-beautiful-skin-with-baking-soda/)
+- [foundation to cover pigmentation](https://skincare.allwomenstalk.com/foolproof-ways-to-cover-up-pigmentation/)
+- [exfoliate benefits](https://skincare.allwomenstalk.com/top-notch-benefits-of-exfoliating-your-skin/)
+- [witch hazel benefits for the face](https://skincare.allwomenstalk.com/reasons-to-add-witch-hazel-in-your-skin-care-routine/)
+- [best ways to exfoliate skin](https://skincare.allwomenstalk.com/inventive-ways-to-exfoliate-your-skin/)
+- [does cold showers cause acne](https://skincare.allwomenstalk.com/helpful-tricks-and-tips-for-keratosis-pilaris/)
+- [milk of magnesia for oily skin](https://skincare.allwomenstalk.com/amazing-tips-to-calm-an-oily-t-zone/)
 - [aging oily skin](https://skincare.allwomenstalk.com/best-anti-aging-tips-for-oily-skin/)
 - [7 Tips on Preventing Dry Skin ...](https://skincare.allwomenstalk.com/7-tips-on-preventing-dry-skin/)
 - [7 Tips on Preventing Skin Dehydration ...](https://skincare.allwomenstalk.com/7-tips-on-preventing-skin-dehydration/)

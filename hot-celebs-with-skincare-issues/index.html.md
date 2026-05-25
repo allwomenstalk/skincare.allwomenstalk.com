@@ -44,16 +44,16 @@ Top Image Source: [favim.com](https://goo.gl/ue0F3f)
 
 ## Related Posts
 
-- [glitter bodysuits](https://celebs.allwomenstalk.com/best-sparkly-bodysuits-on-celebrities/)
-- [zoe perry smoking](https://beauty.allwomenstalk.com/chic-celebrities-to-get-beauty-inspiration-from/)
-- [famous eccentric person](https://celebs.allwomenstalk.com/most-eccentric-pop-stars/)
-- [sexiest comedian](https://celebs.allwomenstalk.com/hottest-comedians/)
 - [long haired british comedian](https://celebs.allwomenstalk.com/hottest-famous-guys-brits-vs-americans/)
+- [celebrity girl crush list](https://celebs.allwomenstalk.com/fabulous-celebrities-its-okay-to-have-a-girl-crush-on/)
+- [celebrities in trouble with the law](https://celebs.allwomenstalk.com/celebrities-who-have-been-in-trouble-with-the-law/)
 - [bezos wife](https://celebs.allwomenstalk.com/famous-people-who-are-beautiful-on-the-inside/)
 - [ed begley jnr](https://celebs.allwomenstalk.com/celebrities-who-care-about-the-environment/)
-- [celebrities in trouble with the law](https://celebs.allwomenstalk.com/celebrities-who-have-been-in-trouble-with-the-law/)
+- [glitter bodysuits](https://celebs.allwomenstalk.com/best-sparkly-bodysuits-on-celebrities/)
 - [famous celebrity haircuts](https://celebs.allwomenstalk.com/shocking-celebrity-haircuts/)
-- [celebrity girl crush list](https://celebs.allwomenstalk.com/fabulous-celebrities-its-okay-to-have-a-girl-crush-on/)
+- [zoe perry smoking](https://beauty.allwomenstalk.com/chic-celebrities-to-get-beauty-inspiration-from/)
+- [sexiest comedian](https://celebs.allwomenstalk.com/hottest-comedians/)
+- [famous eccentric person](https://celebs.allwomenstalk.com/most-eccentric-pop-stars/)
 - [7 Skincare Tips for Summer ...](https://skincare.allwomenstalk.com/skincare-tips-for-summer/)
 - [Top 7 Skin Care Brands I Love ...](https://skincare.allwomenstalk.com/top-skin-care-brands-i-love/)
 

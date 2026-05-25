@@ -56,15 +56,15 @@ This article was written in collaboration with editor Lisa Washington.
 
 ## Related Posts
 
-- [natural makeup teenager](https://skincare.allwomenstalk.com/copy-these-teen-skincare-tips-to-look-like-a-ten/)
-- [bas skin](https://skincare.allwomenstalk.com/whats-the-cause-behind-your-bad-skin-days/)
-- [kale benefits for skin](https://skincare.allwomenstalk.com/how-can-you-use-kale-to-make-your-skin-more-beautiful/)
-- [chinese eyes gif](https://skincare.allwomenstalk.com/tips-for-taking-care-of-the-delicate-skin-around-your-eyes/)
 - [what to do with pimples that hurt](https://skincare.allwomenstalk.com/how-to-deal-with-a-pimple-that-hurts-like-hell/)
-- [can deodorant prevent chafing](https://skincare.allwomenstalk.com/how-to-stop-your-skin-from-chafing/)
-- [fassure](https://skincare.allwomenstalk.com/the-secret-to-getting-rid-of-acne-once-and-for-all/)
-- [best full coverage foundation for acne scars](https://makeup.allwomenstalk.com/this-is-the-best-foundation-routine-to-cover-up-acne-and-scars/)
 - [how to get flawless skin](https://skincare.allwomenstalk.com/how-to-get-flawless-skin-on-a-college-girls-budget/)
+- [bas skin](https://skincare.allwomenstalk.com/whats-the-cause-behind-your-bad-skin-days/)
+- [best full coverage foundation for acne scars](https://makeup.allwomenstalk.com/this-is-the-best-foundation-routine-to-cover-up-acne-and-scars/)
+- [kale benefits for skin](https://skincare.allwomenstalk.com/how-can-you-use-kale-to-make-your-skin-more-beautiful/)
+- [can deodorant prevent chafing](https://skincare.allwomenstalk.com/how-to-stop-your-skin-from-chafing/)
+- [natural makeup teenager](https://skincare.allwomenstalk.com/copy-these-teen-skincare-tips-to-look-like-a-ten/)
+- [chinese eyes gif](https://skincare.allwomenstalk.com/tips-for-taking-care-of-the-delicate-skin-around-your-eyes/)
+- [fassure](https://skincare.allwomenstalk.com/the-secret-to-getting-rid-of-acne-once-and-for-all/)
 - [what habits cause acne](https://skincare.allwomenstalk.com/daily-habits-that-make-you-more-likely-to-develop-acne/)
 - [10 Tips for a Lifetime of Beautiful Skin ...](https://skincare.allwomenstalk.com/tips-for-a-lifetime-of-beautiful-skin/)
 - [10 New Ways to Achieve Healthy Looking Skin ...](https://skincare.allwomenstalk.com/new-ways-to-achieve-healthy-looking-skin/)

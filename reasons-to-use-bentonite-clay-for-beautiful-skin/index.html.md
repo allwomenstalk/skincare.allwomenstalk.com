@@ -45,15 +45,15 @@ When I started using bentonite clay this past winter as a facial mask I was plea
 ## Related Posts
 
 - [best cooling body lotion](https://skincare.allwomenstalk.com/cooling-beauty-products-thatll-keep-you-cool-and-calm/)
-- [expensive serum for face](https://skincare.allwomenstalk.com/expensive-face-serums-treatments-that-are-totally-worth-it/)
+- [shea butter vitamins](https://skincare.allwomenstalk.com/reasons-to-use-shea-butter-for-your-skin/)
+- [carla facciolo soap](https://skincare.allwomenstalk.com/great-online-stores-that-sell-handmade-soap/)
 - [natural skin care ingredients](https://skincare.allwomenstalk.com/natural-skincare-ingredients-youll-love/)
 - [burts bees sunburn treatment](https://skincare.allwomenstalk.com/amazing-after-care-lotions-to-treat-sunburn-this-summer/)
+- [bath salts luxury](https://beauty.allwomenstalk.com/luxurious-bath-salts-on-etsy-that-will-have-your-body-thank-you/)
 - [paris riche stylo smoky paradise enchanted](https://makeup.allwomenstalk.com/perfect-powders-for-a-shine-free-face/)
 - [natural skin exfoliants](https://skincare.allwomenstalk.com/kinds-of-natural-exfoliants-for-your-skin/)
+- [expensive serum for face](https://skincare.allwomenstalk.com/expensive-face-serums-treatments-that-are-totally-worth-it/)
 - [best bb cream for asian skin](https://makeup.allwomenstalk.com/brilliant-korean-bb-creams-for-glowing-summer-skin/)
-- [bath salts luxury](https://beauty.allwomenstalk.com/luxurious-bath-salts-on-etsy-that-will-have-your-body-thank-you/)
-- [carla facciolo soap](https://skincare.allwomenstalk.com/great-online-stores-that-sell-handmade-soap/)
-- [shea butter vitamins](https://skincare.allwomenstalk.com/reasons-to-use-shea-butter-for-your-skin/)
 - [10 Tips for a Lifetime of Beautiful Skin ...](https://skincare.allwomenstalk.com/tips-for-a-lifetime-of-beautiful-skin/)
 - [8 Things That Are Good for Your Skin ...](https://skincare.allwomenstalk.com/things-that-are-good-for-your-skin/)
 

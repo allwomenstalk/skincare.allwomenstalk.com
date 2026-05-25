@@ -48,16 +48,16 @@ Top Image Source: _tcmag.com_
 
 ## Related Posts
 
-- [bad food for skin](https://skincare.allwomenstalk.com/common-foods-that-wreak-havoc-on-your-skin/)
 - [how to shrink pores instantly](https://skincare.allwomenstalk.com/ways-to-minimize-pores-instantly/)
-- [how to get good skin in a week](https://beauty.allwomenstalk.com/ways-to-improve-the-look-of-your-skin-in-a-week/)
-- [witch hazel benefits for the face](https://skincare.allwomenstalk.com/reasons-to-add-witch-hazel-in-your-skin-care-routine/)
 - [dry skin in knees](https://skincare.allwomenstalk.com/tips-to-take-care-of-dry-skin-on-your-knees-and-elbows/)
-- [lightest light skin](https://makeup.allwomenstalk.com/ways-to-cover-blemishes-on-the-lightest-skin/)
-- [correct order to do skincare](https://skincare.allwomenstalk.com/tips-on-how-to-apply-your-skincare-products-in-the-correct-order/)
-- [primer for acne scars](https://skincare.allwomenstalk.com/effective-tips-for-conealing-acne-scars/)
-- [best ways to exfoliate skin](https://skincare.allwomenstalk.com/inventive-ways-to-exfoliate-your-skin/)
 - [foundation to cover pigmentation](https://skincare.allwomenstalk.com/foolproof-ways-to-cover-up-pigmentation/)
+- [primer for acne scars](https://skincare.allwomenstalk.com/effective-tips-for-conealing-acne-scars/)
+- [how to get good skin in a week](https://beauty.allwomenstalk.com/ways-to-improve-the-look-of-your-skin-in-a-week/)
+- [best ways to exfoliate skin](https://skincare.allwomenstalk.com/inventive-ways-to-exfoliate-your-skin/)
+- [witch hazel benefits for the face](https://skincare.allwomenstalk.com/reasons-to-add-witch-hazel-in-your-skin-care-routine/)
+- [correct order to do skincare](https://skincare.allwomenstalk.com/tips-on-how-to-apply-your-skincare-products-in-the-correct-order/)
+- [bad food for skin](https://skincare.allwomenstalk.com/common-foods-that-wreak-havoc-on-your-skin/)
+- [lightest light skin](https://makeup.allwomenstalk.com/ways-to-cover-blemishes-on-the-lightest-skin/)
 - [7 Tips on Preventing Dry Skin ...](https://skincare.allwomenstalk.com/7-tips-on-preventing-dry-skin/)
 - [7 Tricks to Cure Dry Skin ...](https://skincare.allwomenstalk.com/tricks-to-cure-dry-skin/)
 

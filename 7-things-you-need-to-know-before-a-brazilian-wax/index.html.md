@@ -44,16 +44,16 @@ Top Photo Credit: [ScarletPeaches](https://www.flickr.com/photos/scarletpeaches/
 
 ## Related Posts
 
-- [7 Consequences of Fetal Alcohol Syndrome ...](https://parenting.allwomenstalk.com/7-consequences-of-fetal-alcohol-syndrome/)
-- [10 Methods of Birth Control ...](https://parenting.allwomenstalk.com/methods-of-birth-control/)
-- [7 Scariest Invasive Surgeries ...](https://health.allwomenstalk.com/7-scariest-invasive-surgeries/)
-- [bugs in the body](https://skincare.allwomenstalk.com/8-bugs-that-live-on-the-human-body/)
-- [7 Things to Remember when Going to Your OB Doc ...](https://parenting.allwomenstalk.com/7-things-to-remember-when-going-to-your-ob-doc/)
 - [8 Myths about ADHD ...](https://parenting.allwomenstalk.com/8-myths-about-adhd/)
+- [bugs in the body](https://skincare.allwomenstalk.com/8-bugs-that-live-on-the-human-body/)
 - [7 Prescription Drugs with Strange Side Effects ...](https://health.allwomenstalk.com/prescription-drugs-with-strange-side-effects/)
+- [7 Consequences of Fetal Alcohol Syndrome ...](https://parenting.allwomenstalk.com/7-consequences-of-fetal-alcohol-syndrome/)
 - [7 Misconceptions about Birth Control ...](https://parenting.allwomenstalk.com/misconceptions-about-birth-control/)
+- [10 Methods of Birth Control ...](https://parenting.allwomenstalk.com/methods-of-birth-control/)
+- [7 Things to Remember when Going to Your OB Doc ...](https://parenting.allwomenstalk.com/7-things-to-remember-when-going-to-your-ob-doc/)
 - [5 Herbs to Take Caution with ...](https://gardening.allwomenstalk.com/5-herbs-to-take-caution-with/)
 - [7 Horrible Diseases ...](https://health.allwomenstalk.com/7-horrible-diseases/)
+- [7 Scariest Invasive Surgeries ...](https://health.allwomenstalk.com/7-scariest-invasive-surgeries/)
 - [7 Tips on Shaving Your Bikini Area ...](https://skincare.allwomenstalk.com/7-tips-on-shaving-your-bikini-area/)
 - [7 Things You Should Know before Getting Hair Exten...](https://hair.allwomenstalk.com/7-things-you-should-know-before-getting-hair-extensions/)
 

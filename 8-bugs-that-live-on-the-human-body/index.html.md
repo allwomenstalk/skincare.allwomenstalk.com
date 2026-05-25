@@ -48,14 +48,14 @@ Top Photo Credit: [manny.canada](https://www.flickr.com/photos/58937697@N00/3206
 
 ## Related Posts
 
-- [7 Things to Remember when Going to Your OB Doc ...](https://parenting.allwomenstalk.com/7-things-to-remember-when-going-to-your-ob-doc/)
-- [10 Methods of Birth Control ...](https://parenting.allwomenstalk.com/methods-of-birth-control/)
-- [7 Prescription Drugs with Strange Side Effects ...](https://health.allwomenstalk.com/prescription-drugs-with-strange-side-effects/)
-- [7 Horrible Diseases ...](https://health.allwomenstalk.com/7-horrible-diseases/)
+- [7 Consequences of Fetal Alcohol Syndrome ...](https://parenting.allwomenstalk.com/7-consequences-of-fetal-alcohol-syndrome/)
 - [5 Herbs to Take Caution with ...](https://gardening.allwomenstalk.com/5-herbs-to-take-caution-with/)
 - [7 Misconceptions about Birth Control ...](https://parenting.allwomenstalk.com/misconceptions-about-birth-control/)
+- [7 Things to Remember when Going to Your OB Doc ...](https://parenting.allwomenstalk.com/7-things-to-remember-when-going-to-your-ob-doc/)
+- [7 Horrible Diseases ...](https://health.allwomenstalk.com/7-horrible-diseases/)
+- [10 Methods of Birth Control ...](https://parenting.allwomenstalk.com/methods-of-birth-control/)
+- [7 Prescription Drugs with Strange Side Effects ...](https://health.allwomenstalk.com/prescription-drugs-with-strange-side-effects/)
 - [8 Myths about ADHD ...](https://parenting.allwomenstalk.com/8-myths-about-adhd/)
-- [7 Consequences of Fetal Alcohol Syndrome ...](https://parenting.allwomenstalk.com/7-consequences-of-fetal-alcohol-syndrome/)
 - [8 Things to Know about Antioxidants ...](https://health.allwomenstalk.com/8-things-to-know-about-antioxidants/)
 - [7 Scariest Invasive Surgeries ...](https://health.allwomenstalk.com/7-scariest-invasive-surgeries/)
 - [9 Surprising Places Where Germs Lurk ...](https://health.allwomenstalk.com/9-surprising-places-where-germs-lurk/)

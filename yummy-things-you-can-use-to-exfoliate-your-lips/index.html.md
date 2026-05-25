@@ -56,16 +56,16 @@ Did you realize that you should be exfoliating your lips? If not, you aren’t a
 
 ## Related Posts
 
-- [gorgeous lipstick](https://makeup.allwomenstalk.com/gorgeous-lipstick-colors-for-fall/)
-- [best lipstick shade for pale skin](https://makeup.allwomenstalk.com/beautiful-fall-lipstick-shades-for-pale-skin/)
+- [claire danes makeup](https://makeup.allwomenstalk.com/steal-her-look-the-sultry-lipsticks-all-the-stars-are-wearing/)
 - [The Best Nude Lipstick for Every Skin Type ...](https://makeup.allwomenstalk.com/the-best-nude-lipstick-for-every-skin-type/)
 - [color le stylo smoky emerald conquest](https://makeup.allwomenstalk.com/reasons-to-love-matte-lipsticks/)
-- [claire danes makeup](https://makeup.allwomenstalk.com/steal-her-look-the-sultry-lipsticks-all-the-stars-are-wearing/)
-- [how to keep your lipstick from bleeding](https://makeup.allwomenstalk.com/tips-for-long-lasting-lipstick/)
-- [best vampy lipstick](https://makeup.allwomenstalk.com/new-tips-for-2015s-vampy-lip-trend/)
-- [indian eye kajal](https://makeup.allwomenstalk.com/things-to-know-about-kajal-liner/)
+- [best lipstick shade for pale skin](https://makeup.allwomenstalk.com/beautiful-fall-lipstick-shades-for-pale-skin/)
 - [how to buy mascara](https://makeup.allwomenstalk.com/tips-for-buying-the-ultimate-mascara/)
+- [gorgeous lipstick](https://makeup.allwomenstalk.com/gorgeous-lipstick-colors-for-fall/)
+- [how to keep your lipstick from bleeding](https://makeup.allwomenstalk.com/tips-for-long-lasting-lipstick/)
 - [bold eyes and bold lips](https://makeup.allwomenstalk.com/reasons-why-life-is-better-when-you-rock-a-bold-lip/)
+- [indian eye kajal](https://makeup.allwomenstalk.com/things-to-know-about-kajal-liner/)
+- [best vampy lipstick](https://makeup.allwomenstalk.com/new-tips-for-2015s-vampy-lip-trend/)
 - [7 Great Exfoliants for Every Skin Type ...](https://skincare.allwomenstalk.com/7-great-exfoliants-for-every-skin-type/)
 - [7 Steps to a Great Home Made Exfoliator ...](https://skincare.allwomenstalk.com/steps-to-a-great-home-made-exfoliator/)
 

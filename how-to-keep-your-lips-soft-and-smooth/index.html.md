@@ -43,15 +43,15 @@ These’re 7 tips to help keep your lips soft and smooth. What’s your favorite
 ## Related Posts
 
 - [how to do lipstick](https://makeup.allwomenstalk.com/makeup-tutorials-for-ladies-with-small-lips/)
-- [lip beauty tips](https://makeup.allwomenstalk.com/makeup-tips-that-beat-lip-injections/)
+- [smashbox](https://makeup.allwomenstalk.com/hottest-lip-colors-for-fall/)
+- [unscented lipstick](https://makeup.allwomenstalk.com/lip-products-for-women-who-hate-lipstick/)
 - [lime lips scream](https://makeup.allwomenstalk.com/long-wear-lip-colors-that-wont-disappoint-or-disappear/)
 - [lipstick that stays on lips](https://makeup.allwomenstalk.com/lipsticks-that-wont-get-all-over-him-when-you-kiss/)
+- [lipstick harry potter](https://makeup.allwomenstalk.com/new-harry-potter-inspired-liquid-lipsticks/)
 - [rosebud strawberry lip balm and moisturizer](https://makeup.allwomenstalk.com/the-best-lip-products-to-moisturize-your-pout/)
 - [basic lipstick colors to have](https://makeup.allwomenstalk.com/lipstick-for-beginners/)
-- [unscented lipstick](https://makeup.allwomenstalk.com/lip-products-for-women-who-hate-lipstick/)
 - [herbivore lip balm](https://beauty.allwomenstalk.com/lip-balms-thatll-give-you-a-pretty-pout/)
-- [smashbox](https://makeup.allwomenstalk.com/hottest-lip-colors-for-fall/)
-- [lipstick harry potter](https://makeup.allwomenstalk.com/new-harry-potter-inspired-liquid-lipsticks/)
+- [lip beauty tips](https://makeup.allwomenstalk.com/makeup-tips-that-beat-lip-injections/)
 - [10 Tips for a Lifetime of Beautiful Skin ...](https://skincare.allwomenstalk.com/tips-for-a-lifetime-of-beautiful-skin/)
 - [7 Important Tips to Keep Youthful Looks ...](https://beauty.allwomenstalk.com/important-tips-to-keep-youthful-looks/)
 

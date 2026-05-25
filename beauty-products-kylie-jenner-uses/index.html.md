@@ -68,15 +68,15 @@ I am definitely gonna try some of these products! Which product do you think you
 
 ## Related Posts
 
-- [sephora volcanic sand scrub](https://skincare.allwomenstalk.com/best-skincare-products-at-sephora/)
-- [dessert palette](https://makeup.allwomenstalk.com/dessert-inspired-eyeshadow-palettes/)
-- [fun makeup products](https://makeup.allwomenstalk.com/best-natural-makeup-products/)
-- [color riche stylo smoky timeless spark](https://beauty.allwomenstalk.com/best-budget-beauty-brands/)
-- [chola makeup](https://makeup.allwomenstalk.com/the-history-of-cosmetics/)
-- [kylie jenner funny picture](https://makeup.allwomenstalk.com/facts-about-kylie-jenners-cosmetic-business/)
-- [what all do you need for makeup](https://makeup.allwomenstalk.com/basic-makeup-essentials-for-beginners/)
-- [most pigmented highlighter](https://makeup.allwomenstalk.com/worlds-most-blinding-highlighters/)
 - [best affordable highlighters](https://makeup.allwomenstalk.com/affordable-highlighters-under-30/)
+- [fun makeup products](https://makeup.allwomenstalk.com/best-natural-makeup-products/)
+- [chola makeup](https://makeup.allwomenstalk.com/the-history-of-cosmetics/)
+- [color riche stylo smoky timeless spark](https://beauty.allwomenstalk.com/best-budget-beauty-brands/)
+- [kylie jenner funny picture](https://makeup.allwomenstalk.com/facts-about-kylie-jenners-cosmetic-business/)
+- [dessert palette](https://makeup.allwomenstalk.com/dessert-inspired-eyeshadow-palettes/)
+- [what all do you need for makeup](https://makeup.allwomenstalk.com/basic-makeup-essentials-for-beginners/)
+- [sephora volcanic sand scrub](https://skincare.allwomenstalk.com/best-skincare-products-at-sephora/)
+- [most pigmented highlighter](https://makeup.allwomenstalk.com/worlds-most-blinding-highlighters/)
 - [best dollar tree makeup](https://makeup.allwomenstalk.com/1-makeup-products-at-dollar-tree/)
 - [7 Cult-Classic Beauty Products ...](https://allwomenstalk.com/7-cult-classic-beauty-products/)
 - [8 Cult Beauty Products Every Girl Must Own ...](https://beauty.allwomenstalk.com/cult-beauty-products-every-girl-must-own/)

@@ -157,16 +157,16 @@ I think there's a scrub for just about every part of your body you can use a scr
 
 ## Related Posts
 
-- [cheap vs expensive skin care products](https://skincare.allwomenstalk.com/reasons-not-to-waste-money-on-expensive-skincare-products/)
-- [shea butter vitamins](https://skincare.allwomenstalk.com/reasons-to-use-shea-butter-for-your-skin/)
-- [fruity skincare](https://skincare.allwomenstalk.com/delicious-fruity-skincare-products-to-make-you-happy/)
-- [best cleansing powder](https://skincare.allwomenstalk.com/beautifying-facial-cleansing-powders-you-cant-pass-up/)
 - [indian healing clay whole foods](https://skincare.allwomenstalk.com/reasons-to-use-bentonite-clay-for-beautiful-skin/)
-- [best shaving cream for womens hair](https://skincare.allwomenstalk.com/womens-shaving-cream-brands-for-your-smoothest-shave-ever/)
-- [food masks for skin](https://skincare.allwomenstalk.com/best-foods-for-face-masks/)
+- [fruity skincare](https://skincare.allwomenstalk.com/delicious-fruity-skincare-products-to-make-you-happy/)
 - [lavender scented items](https://skincare.allwomenstalk.com/lavender-scented-skincare-products-sure-to-relax-you/)
-- [natural skin exfoliants](https://skincare.allwomenstalk.com/kinds-of-natural-exfoliants-for-your-skin/)
+- [food masks for skin](https://skincare.allwomenstalk.com/best-foods-for-face-masks/)
+- [best shaving cream for womens hair](https://skincare.allwomenstalk.com/womens-shaving-cream-brands-for-your-smoothest-shave-ever/)
+- [shea butter vitamins](https://skincare.allwomenstalk.com/reasons-to-use-shea-butter-for-your-skin/)
 - [boscia konjac cleansing sponge](https://skincare.allwomenstalk.com/cool-and-unique-facial-cleansing-tools/)
+- [best cleansing powder](https://skincare.allwomenstalk.com/beautifying-facial-cleansing-powders-you-cant-pass-up/)
+- [cheap vs expensive skin care products](https://skincare.allwomenstalk.com/reasons-not-to-waste-money-on-expensive-skincare-products/)
+- [natural skin exfoliants](https://skincare.allwomenstalk.com/kinds-of-natural-exfoliants-for-your-skin/)
 - [9 Home-Made Face Masks for Winter Skin Care ...](https://allwomenstalk.com/5-home-made-face-masks-for-winter-skin-care/)
 - [9 Homemade Skincare Treatments ...](https://allwomenstalk.com/9-homemade-skincare-treatments/)
 
