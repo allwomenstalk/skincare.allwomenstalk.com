@@ -3,7 +3,7 @@ title: "7 Ways to Care for Cracked Skin on Your Hands and Feet ..."
 description: "Petroleum Jelly; No More Hot Water; Moisturize; Skip the Sanitizer; Try Coconut Oil; More ..."
 url: "https://skincare.allwomenstalk.com/ways-to-care-for-cracked-skin-on-your-hands-and-feet/"
 category: "skincare"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Ways to Care for Cracked Skin on Your Hands and Feet ...
@@ -42,16 +42,16 @@ Do you have cracked feet and hands? It’s not fun is it? Which of these tips wi
 
 ## Related Posts
 
-- [vitamins for strong nails](https://nails.allwomenstalk.com/take-these-vitamins-and-minerals-for-stronger-nails/)
 - [how to whiten nails](https://nails.allwomenstalk.com/whiten-your-discolored-nails-with-these-simple-home-remedies/)
-- [7 Tips for Getting Water Marbled Nail Art Just Rig...](https://nails.allwomenstalk.com/tips-for-getting-water-marbled-nail-art-just-right/)
-- [how to make your manicure last longer](https://nails.allwomenstalk.com/tricks-to-make-your-manicure-last-at-least-a-week/)
-- [Heres How to Keep Your Nails in Perfect Condition ...](https://nails.allwomenstalk.com/heres-how-to-keep-your-nails-in-perfect-condition/)
-- [paris riche le stylo silver couture](https://nails.allwomenstalk.com/the-fastest-easiest-way-to-color-your-nails/)
-- [7 Things You Need to Know about Gel Manicures ...](https://nails.allwomenstalk.com/things-you-need-to-know-about-gel-manicures/)
 - [DIY Beauty: the Best Ways to Dry Nail Polish Quick...](https://nails.allwomenstalk.com/diy-beauty-the-best-ways-to-dry-nail-polish-quickly/)
-- [No More Cracks: 7 Ways to Prep Your Feet for Sanda...](https://skincare.allwomenstalk.com/no-more-cracks-ways-to-prep-your-feet-for-sandal-season/)
+- [how to make your manicure last longer](https://nails.allwomenstalk.com/tricks-to-make-your-manicure-last-at-least-a-week/)
 - [7 Things Your Fingernails Are Telling You about Yo...](https://health.allwomenstalk.com/things-your-fingernails-are-telling-you-about-your-health/)
+- [No More Cracks: 7 Ways to Prep Your Feet for Sanda...](https://skincare.allwomenstalk.com/no-more-cracks-ways-to-prep-your-feet-for-sandal-season/)
+- [paris riche le stylo silver couture](https://nails.allwomenstalk.com/the-fastest-easiest-way-to-color-your-nails/)
+- [Heres How to Keep Your Nails in Perfect Condition ...](https://nails.allwomenstalk.com/heres-how-to-keep-your-nails-in-perfect-condition/)
+- [7 Tips for Getting Water Marbled Nail Art Just Rig...](https://nails.allwomenstalk.com/tips-for-getting-water-marbled-nail-art-just-right/)
+- [7 Things You Need to Know about Gel Manicures ...](https://nails.allwomenstalk.com/things-you-need-to-know-about-gel-manicures/)
+- [vitamins for strong nails](https://nails.allwomenstalk.com/take-these-vitamins-and-minerals-for-stronger-nails/)
 - [7 Tips on Preventing Dry Skin ...](https://skincare.allwomenstalk.com/7-tips-on-preventing-dry-skin/)
 - [7 Tips for Taking Care of Your Cuticles ...](https://skincare.allwomenstalk.com/tips-for-taking-care-of-your-cuticles/)
 
