@@ -3,7 +3,7 @@ title: "Bye-Bye Winter Skin! 27 DIY Sugar Scrubs to Try ..."
 description: "Peppermint Sugar Scrub Bars; Eucalyptus Body Scrub; Gingerbread Sugar Scrub; Winter White Sugar Scrub; Lemon Sugar Scrub; More ..."
 url: "https://skincare.allwomenstalk.com/bye-bye-winter-skin-diy-sugar-scrubs-to-try/"
 category: "skincare"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # Bye\-Bye Winter Skin! 27 DIY Sugar Scrubs to Try ...
@@ -166,16 +166,16 @@ Via [Pomegranate Sugar Scrub Homemade Recipe](https://www.thismamaloves.com/pome
 
 ## Related Posts
 
-- [best skincare books](https://skincare.allwomenstalk.com/skincare-books-that-will-change-your-life/)
-- [shaving gel substitute](https://beauty.allwomenstalk.com/products-that-are-great-alternatives-to-shaving-cream/)
-- [selling natural products](https://beauty.allwomenstalk.com/beauty-companies-that-sell-natural-products/)
-- [ingredients in face masks](https://skincare.allwomenstalk.com/ingredients-to-look-for-in-a-facial-mask/)
 - [products made out of coconut](https://diy.allwomenstalk.com/coconut-is-a-magical-beauty-ingredient-try-these-homemade-coconut-products/)
-- [diy baby bubble bath](https://beauty.allwomenstalk.com/you-simply-have-to-pamper-yourself-with-these-diy-bubble-bath-recipes/)
-- [calamine lotion manufacturer](https://diy.allwomenstalk.com/alternate-uses-for-moisturizer-to-get-the-most-from-your-money/)
 - [tumeric honey and lemon face mask](https://skincare.allwomenstalk.com/harness-the-power-of-ayurveda-to-get-glowing-skin-with-these-face-masks/)
-- [homemade aloe vera face pack](https://skincare.allwomenstalk.com/get-a-healthy-glow-homemade-aloe-vera-face-packs-for-all-skin-types/)
 - [best face wash powder](https://skincare.allwomenstalk.com/want-clear-skin-try-the-best-brands-of-powder-face-wash/)
+- [homemade aloe vera face pack](https://skincare.allwomenstalk.com/get-a-healthy-glow-homemade-aloe-vera-face-packs-for-all-skin-types/)
+- [ingredients in face masks](https://skincare.allwomenstalk.com/ingredients-to-look-for-in-a-facial-mask/)
+- [best skincare books](https://skincare.allwomenstalk.com/skincare-books-that-will-change-your-life/)
+- [calamine lotion manufacturer](https://diy.allwomenstalk.com/alternate-uses-for-moisturizer-to-get-the-most-from-your-money/)
+- [selling natural products](https://beauty.allwomenstalk.com/beauty-companies-that-sell-natural-products/)
+- [shaving gel substitute](https://beauty.allwomenstalk.com/products-that-are-great-alternatives-to-shaving-cream/)
+- [diy baby bubble bath](https://beauty.allwomenstalk.com/you-simply-have-to-pamper-yourself-with-these-diy-bubble-bath-recipes/)
 - [7 Facial Scrubs I Love ...](https://skincare.allwomenstalk.com/facial-scrubs-i-love/)
 - [De-winterize Your Face Spring Beauty ...](https://allwomenstalk.com/de-winterize-your-face-spring-beauty/)
 

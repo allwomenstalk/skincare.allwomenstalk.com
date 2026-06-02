@@ -3,7 +3,7 @@ title: "9 Ways to Combat Dry Skin in the Harsh Winter Time ..."
 description: "Drink Lots of Water; Use Moisturizing Soaps; Avoid Scented Products; Use Oil; Wear the Proper Gear; More ..."
 url: "https://skincare.allwomenstalk.com/ways-to-combat-dry-skin-in-the-harsh-winter-time/"
 category: "skincare"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 9 Ways to Combat Dry Skin in the Harsh Winter Time ...

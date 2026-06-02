@@ -3,7 +3,7 @@ title: "7 Autoimmune Skin Conditions Youve Probably Never Heard of ..."
 description: "Scleroderma; Blistering Diseases; Epidermolysis Bullosa; Dermatomyositis; Psoriasis; More ..."
 url: "https://skincare.allwomenstalk.com/autoimmune-skin-conditions-youve-probably-never-heard-of/"
 category: "skincare"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Autoimmune Skin Conditions Youve Probably Never Heard of ...
@@ -42,16 +42,16 @@ Do you or anyone you know have one of these conditions? Autoimmune diseases are 
 
 ## Related Posts
 
+- [what to get for a first tattoo](https://beauty.allwomenstalk.com/ready-for-your-first-tattoo-do-these-things-before-getting-inked/)
+- [ice spice cellulite](https://skincare.allwomenstalk.com/sad-about-your-cellulite-here-are-things-you-should-know-about-it/)
+- [cancerian qualities](https://inspiration.allwomenstalk.com/challenging-cancer-traits-and-how-to-overcome-them/)
+- [internet challenges list](https://lifestyle.allwomenstalk.com/watch-out-these-stupid-internet-challenges-can-harm-your-body/)
+- [what are some political issues](https://lifestyle.allwomenstalk.com/political-issues-you-should-be-concerned-about/)
+- [girls with outies](https://health.allwomenstalk.com/innies-vs-outies-the-answers-to-common-questions-from-girls-with-inverted-nipples/)
 - [things that cause body odor](https://beauty.allwomenstalk.com/things-that-can-cause-body-odor/)
 - [Lets Talk Pink Nipples and Other Breast Facts for ...](https://health.allwomenstalk.com/what-every-girl-should-know-about-her-nipples/)
 - [things cosmetic surgeon wants to know](https://beauty.allwomenstalk.com/things-plastic-surgeons-wish-they-could-tell-you/)
-- [cancerian qualities](https://inspiration.allwomenstalk.com/challenging-cancer-traits-and-how-to-overcome-them/)
 - [bloodhair](https://lifestyle.allwomenstalk.com/give-back-by-donating-blood-hair-and-these-x-other-things/)
-- [ice spice cellulite](https://skincare.allwomenstalk.com/sad-about-your-cellulite-here-are-things-you-should-know-about-it/)
-- [what are some political issues](https://lifestyle.allwomenstalk.com/political-issues-you-should-be-concerned-about/)
-- [what to get for a first tattoo](https://beauty.allwomenstalk.com/ready-for-your-first-tattoo-do-these-things-before-getting-inked/)
-- [internet challenges list](https://lifestyle.allwomenstalk.com/watch-out-these-stupid-internet-challenges-can-harm-your-body/)
-- [girls with outies](https://health.allwomenstalk.com/innies-vs-outies-the-answers-to-common-questions-from-girls-with-inverted-nipples/)
 - [7 Acne Myths You Should Know ...](https://skincare.allwomenstalk.com/acne-myths-you-should-know/)
 - [7 Bad Habits That Affect Your Skin ...](https://allwomenstalk.com/7-bad-habits-that-affect-your-skin/)
 

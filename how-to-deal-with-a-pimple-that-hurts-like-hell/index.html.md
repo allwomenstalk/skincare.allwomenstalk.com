@@ -3,7 +3,7 @@ title: "How to Deal with a Pimple That Hurts like Hell ..."
 description: "Dab a Bit of Hydrocortisone Cream on the Zit; Figure out the Cause of the Acne; Try Popping Some Antibiotics; A Crushed Aspirin Will Give You the Relief You Need; Drink More Purified Water; More ..."
 url: "https://skincare.allwomenstalk.com/how-to-deal-with-a-pimple-that-hurts-like-hell/"
 category: "skincare"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # How to Deal with a Pimple That Hurts like Hell ...
@@ -42,14 +42,14 @@ Have you ever had a painful pimple? What did you do about it?
 
 ## Related Posts
 
-- [chamomile tea bags on eyes](https://skincare.allwomenstalk.com/treat-your-fine-lines-and-crows-feet-with-these-anti-wrinkle-eye-masks/)
-- [cover stretch marks with makeup](https://skincare.allwomenstalk.com/ways-to-mask-your-stretch-marks-or-get-rid-of-them-altogether/)
-- [does vasaline make your eyelashes grow](https://skincare.allwomenstalk.com/healthy-things-to-put-on-your-face-before-bed/)
-- [shiny look makeup](https://makeup.allwomenstalk.com/ways-to-reduce-shiny-skin-all-day-long/)
 - [ways to brighten skin](https://skincare.allwomenstalk.com/how-to-brighten-your-skin-in-two-weeks-flat/)
 - [girls with clear skin](https://skincare.allwomenstalk.com/dietary-changes-thatll-clear-your-acne-right-up/)
 - [why is my acne acting up](https://skincare.allwomenstalk.com/sneaky-reasons-your-acne-is-acting-up/)
+- [cover stretch marks with makeup](https://skincare.allwomenstalk.com/ways-to-mask-your-stretch-marks-or-get-rid-of-them-altogether/)
+- [shiny look makeup](https://makeup.allwomenstalk.com/ways-to-reduce-shiny-skin-all-day-long/)
+- [does vasaline make your eyelashes grow](https://skincare.allwomenstalk.com/healthy-things-to-put-on-your-face-before-bed/)
 - [kale benefits for skin](https://skincare.allwomenstalk.com/how-can-you-use-kale-to-make-your-skin-more-beautiful/)
+- [chamomile tea bags on eyes](https://skincare.allwomenstalk.com/treat-your-fine-lines-and-crows-feet-with-these-anti-wrinkle-eye-masks/)
 - [girls with clear skin](https://skincare.allwomenstalk.com/hacks-for-to-get-clear-skin-for-girls-struggling-with-acne/)
 - [everygirl skincare](https://skincare.allwomenstalk.com/this-is-what-every-girl-with-dry-skin-needs-to-know/)
 - [How to Free Yourself from Breakouts Naturally ...](https://lifestyle.allwomenstalk.com/how-to-free-yourself-from-breakouts-naturally/)

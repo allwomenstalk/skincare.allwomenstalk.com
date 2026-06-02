@@ -3,7 +3,7 @@ title: "7 Scary Stats about Skin Cancer That You Should Know ..."
 description: "New Cases; Deadly Melanoma; Commonality; Death; Tanning Beds; More ..."
 url: "https://skincare.allwomenstalk.com/scary-stats-about-skin-cancer-that-you-should-know/"
 category: "skincare"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Scary Stats about Skin Cancer That You Should Know ...
@@ -44,14 +44,14 @@ There, I’m getting off my soapbox now. The point is that skin cancer is a very
 
 - [The Most Important Facts You Should Know about Ath...](https://skincare.allwomenstalk.com/important-facts-about-athletes-foot/)
 - [7 Things You Should Know before Going Vegan ...](https://health.allwomenstalk.com/things-you-should-know-before-going-vegan-2/)
-- [hybiclens](https://health.allwomenstalk.com/necessary-things-to-know-about-mrsa/)
-- [Debunking Common Misconceptions about Obsessive-Co...](https://health.allwomenstalk.com/misconceptions-about-obsessive-compulsive-disorder/)
-- [7 Things You Need to Know about ALS ...](https://health.allwomenstalk.com/things-you-need-to-know-about-als/)
-- [rubbing alcohol fruit flies](https://diy.allwomenstalk.com/uses-of-rubbing-alcohol-you-might-have-wondered-about/)
 - [7 Food and Drug Interactions to Be Aware of ...](https://health.allwomenstalk.com/food-and-drug-interactions-to-be-aware-of/)
-- [Every Woman Should Be Aware of These Heart Attack ...](https://health.allwomenstalk.com/symptoms-of-heart-attack-every-women-should-know/)
+- [Debunking Common Misconceptions about Obsessive-Co...](https://health.allwomenstalk.com/misconceptions-about-obsessive-compulsive-disorder/)
+- [rubbing alcohol fruit flies](https://diy.allwomenstalk.com/uses-of-rubbing-alcohol-you-might-have-wondered-about/)
 - [things urine can tell about health](https://health.allwomenstalk.com/things-your-urine-can-tell-you-about-your-health/)
 - [7 Things You Need to Know about Self-Breast Exams ...](https://health.allwomenstalk.com/things-you-need-to-know-about-self-breast-exams/)
+- [7 Things You Need to Know about ALS ...](https://health.allwomenstalk.com/things-you-need-to-know-about-als/)
+- [Every Woman Should Be Aware of These Heart Attack ...](https://health.allwomenstalk.com/symptoms-of-heart-attack-every-women-should-know/)
+- [hybiclens](https://health.allwomenstalk.com/necessary-things-to-know-about-mrsa/)
 - [7 Things You Didnt Know about Sunscreen ...](https://skincare.allwomenstalk.com/things-you-didnt-know-about-sunscreen/)
 - [7 Younger-Looking Skin Tips You Should Know ...](https://skincare.allwomenstalk.com/younger-looking-skin-tips-you-should-know/)
 
