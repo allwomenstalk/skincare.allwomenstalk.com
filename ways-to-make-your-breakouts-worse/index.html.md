@@ -1,12 +1,12 @@
 ---
-title: "8 Things Youre Doing That Are Making Your Breakouts Worse ..."
+title: "8 Things You're Doing That Are Making Your Breakouts Worse ..."
 description: "Constant Spot Treatment; Only Using during a Breakout; Scrubbing; High Concentration; Picking; More ..."
 url: "https://skincare.allwomenstalk.com/ways-to-make-your-breakouts-worse/"
 category: "skincare"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 8 Things Youre Doing That Are Making Your Breakouts Worse ...
+# 8 Things You're Doing That Are Making Your Breakouts Worse ...
 
 If you are someone who suffers with the state of your skin, then you will know full well that there is nothing worse than a breakout! You try your best to keep your skin happy and content, but one little hormonal change or reaction to a product can cause mayhem for weeks and weeks! Usually, breakouts only tend to last a few days before calming back down again and to keep it this way there is definitely a list of things that you should be avoiding to keep your skin as healthy as possible. Here are some **things that make your breakouts worse**!
 
@@ -44,17 +44,17 @@ Even if your skin is oily and greasy, you still need to apply moisturiser on a r
 
 ## Related Posts
 
+- [Here's How CBD Salve Can Help with Painful Skin Co...](https://skincare.allwomenstalk.com/cbd-salve-for-painful-skin-conditions/)
 - [The Best Skincare Tips for Girls Suffering from Dr...](https://skincare.allwomenstalk.com/the-best-skincare-tips-for-girls-suffering-from-dry-skin/)
-- [Use These Tips to Transition Your Skin Care Routin...](https://skincare.allwomenstalk.com/use-these-tips-to-transition-your-skin-care-routine-from-winter-to-spring/)
 - [7 Common Skin Problems and Easy Ways to Fix Them ....](https://skincare.allwomenstalk.com/common-skin-problems-and-easy-ways-to-fix-them/)
-- [Get Younger Looking Skin by Using These Simple Her...](https://skincare.allwomenstalk.com/get-younger-looking-skin-by-using-these-simple-herbal-remedies/)
-- [No Need to Upgrade Your Skincare - A Habit Can Tho...](https://allwomenstalk.com/benefits-silk-pillow-case/)
+- [Game Changing Skincare Tips You're Going to Want t...](https://skincare.allwomenstalk.com/game-changing-skincare-tips-youre-going-to-want-to-know/)
 - [5 Tips for Glowing Skin ...](https://skincare.allwomenstalk.com/tips-for-glowing-skin/)
-- [Heres How CBD Salve Can Help with Painful Skin Con...](https://skincare.allwomenstalk.com/cbd-salve-for-painful-skin-conditions/)
+- [No Need to Upgrade Your Skincare - A Habit Can Tho...](https://allwomenstalk.com/benefits-silk-pillow-case/)
+- [Get Younger Looking Skin by Using These Simple Her...](https://skincare.allwomenstalk.com/get-younger-looking-skin-by-using-these-simple-herbal-remedies/)
 - [how to get rid of frown lines](https://beauty.allwomenstalk.com/ways-to-get-rid-of-frown-lines/)
 - [How to Love the Skin You Have ...](https://skincare.allwomenstalk.com/how-to-love-the-skin-you-have/)
-- [Game Changing Skincare Tips Youre Going to Want to...](https://skincare.allwomenstalk.com/game-changing-skincare-tips-youre-going-to-want-to-know/)
-- [7 Reasons Youre Still Getting Acne ...](https://allwomenstalk.com/7-reasons-youre-still-getting-acne/)
+- [Use These Tips to Transition Your Skin Care Routin...](https://skincare.allwomenstalk.com/use-these-tips-to-transition-your-skin-care-routine-from-winter-to-spring/)
+- [7 Reasons You're Still Getting Acne ...](https://allwomenstalk.com/7-reasons-youre-still-getting-acne/)
 - [9 Ways to Stop Breakouts ...](https://skincare.allwomenstalk.com/ways-to-stop-breakouts/)
 
 ## Site Information

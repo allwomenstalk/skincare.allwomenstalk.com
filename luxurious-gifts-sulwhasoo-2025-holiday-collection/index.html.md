@@ -1,12 +1,12 @@
 ---
-title: "4 Luxurious Gifts from Sulwhasoo’s 2025 Holiday Collection to Indulge in"
+title: "4 Luxurious Gifts from Sulwhasoo’s 2025 Holiday Collection to Indulge in …"
 description: "Cult Classics Set – $190 (Retail Value: $249); Concentrated Ginseng Rejuvenating Eye Cream Set – $123 (Retail Value: $158); Concentrated Ginseng Rejuvenating Cream Set – $260 (Retail Value: $349); Glowing Lip Balm – $38; Why Sulwhasoo Remains a Holiday Staple; More ..."
 url: "https://skincare.allwomenstalk.com/luxurious-gifts-sulwhasoo-2025-holiday-collection/"
 category: "gifts"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 4 Luxurious Gifts from Sulwhasoo’s 2025 Holiday Collection to Indulge in
+# 4 Luxurious Gifts from Sulwhasoo’s 2025 Holiday Collection to Indulge in …
 
 **As the holiday season approaches**, it’s that magical moment when we trade our everyday routines for sparkling evenings, festive celebrations, and, of course, **the subtle thrill of gift-giving**. But in a world flooded with ephemeral beauty trends, there is something extraordinarily satisfying about gifting - and receiving - **true skincare treasures**. And no one does luxury skincare with more style and efficiency than **Sulwhasoo, the global luxury beauty brand** that has been crafting skin-pampering masterpieces since 1932, now offering its [2025 Holiday Collection](https://us.sulwhasoo.com/): a series of **curated gift sets that fuse centuries-old Korean herbal wisdom with cutting-edge skin science.**
 

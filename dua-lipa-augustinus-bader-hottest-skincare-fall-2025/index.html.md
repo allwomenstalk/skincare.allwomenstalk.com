@@ -1,12 +1,12 @@
 ---
-title: "DUA by Dua Lipa x Augustinus Bader Is The Hottest Skincare Line of Fall 2025"
+title: "DUA by Dua Lipa x Augustinus Bader Is The Hottest Skincare Line of Fall 2025 …"
 description: "Step 1: The Balancing Cream Cleanser - Soft Power, in a Tube; Step 2: The Supercharged Glow Complex - Late Nights, Canceled; Step 3: The Renewal Cream - The Dewy Finale; More ..."
 url: "https://skincare.allwomenstalk.com/dua-lipa-augustinus-bader-hottest-skincare-fall-2025/"
 category: "skincare"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# DUA by Dua Lipa x Augustinus Bader Is The Hottest Skincare Line of Fall 2025
+# DUA by Dua Lipa x Augustinus Bader Is The Hottest Skincare Line of Fall 2025 …
 
 Every once in a while, a celebrity skincare line drops that makes the entire beauty industry pause mid-serum. And when I heard that Dua Lipa — global pop phenomenon, Grammy winner, and woman whose cheekbones might actually refract light — was teaming up with Augustinus Bader, I did just that. I put down my jade roller, sipped my matcha, and whispered, “Okay, this could actually be good.”
 

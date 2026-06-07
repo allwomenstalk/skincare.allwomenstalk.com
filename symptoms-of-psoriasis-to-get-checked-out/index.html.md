@@ -3,7 +3,7 @@ title: "7 Symptoms of Psoriasis to Get Checked out ..."
 description: "Red Patches; Scaly Spots; Cracked Skin; Itching and Burning; Soreness; More ..."
 url: "https://skincare.allwomenstalk.com/symptoms-of-psoriasis-to-get-checked-out/"
 category: "skincare"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # 7 Symptoms of Psoriasis to Get Checked out ...
@@ -42,15 +42,15 @@ Do you have psoriasis? When were you diagnosed? There are several types of psori
 
 ## Related Posts
 
-- [7 Things to Remember if Youre Prescribed Antibioti...](https://health.allwomenstalk.com/things-to-remember-if-youre-prescribed-antibiotics/)
-- [Be Wary of These Items if You Have a Nickel Allerg...](https://health.allwomenstalk.com/items-to-be-wary-of-if-you-have-a-nickel-allergy/)
-- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/common-causes-of-stomach-pain/)
-- [7 Reasons You Should Have a Regular Dental Checkup...](https://health.allwomenstalk.com/reasons-you-should-have-a-regular-dental-checkup/)
-- [7 Things You Should Know about Body Dysmorphia ...](https://mindfulness.allwomenstalk.com/things-you-should-know-about-body-dysmorphia/)
 - [Common Pregnancy Skin Conditions You Might Experie...](https://skincare.allwomenstalk.com/pregnancy-skin-conditions-you-might-have-to-deal-with/)
-- [7 Side Effects of Stress to Look out for ...](https://health.allwomenstalk.com/side-effects-of-stress-to-look-out-for/)
-- [10 Things You Should Know about Depression ...](https://mindfulness.allwomenstalk.com/things-you-should-know-about-depression/)
+- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/common-causes-of-stomach-pain/)
 - [10 Health Facts Discovered in 2014 ...](https://health.allwomenstalk.com/health-facts-discovered-in/)
+- [7 Side Effects of Stress to Look out for ...](https://health.allwomenstalk.com/side-effects-of-stress-to-look-out-for/)
+- [7 Reasons You Should Have a Regular Dental Checkup...](https://health.allwomenstalk.com/reasons-you-should-have-a-regular-dental-checkup/)
+- [7 Things to Remember if You're Prescribed Antibiot...](https://health.allwomenstalk.com/things-to-remember-if-youre-prescribed-antibiotics/)
+- [7 Things You Should Know about Body Dysmorphia ...](https://mindfulness.allwomenstalk.com/things-you-should-know-about-body-dysmorphia/)
+- [Be Wary of These Items if You Have a Nickel Allerg...](https://health.allwomenstalk.com/items-to-be-wary-of-if-you-have-a-nickel-allergy/)
+- [10 Things You Should Know about Depression ...](https://mindfulness.allwomenstalk.com/things-you-should-know-about-depression/)
 - [7 Things to Worry about More than Ebola ...](https://health.allwomenstalk.com/things-to-worry-about-more-than-ebola/)
 - [7 Signs That Your Skin Needs More Care ...](https://allwomenstalk.com/7-signs-that-your-skin-needs-more-care/)
 - [8 Possible Causes of Skin Disorders ...](https://skincare.allwomenstalk.com/possible-causes-of-skin-disorders/)
