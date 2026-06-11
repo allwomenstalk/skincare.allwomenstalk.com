@@ -3,7 +3,7 @@ title: "15 Amazing Homemade Exfoliators ..."
 description: "Coffee, Lavender & Sugar Scrub; Sugar & Olive Oil; Salt & Lemon; Strawberries & Honey; Smashed Strawberries; More ..."
 url: "https://skincare.allwomenstalk.com/amazing-homemade-exfoliators/"
 category: "skincare"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 15 Amazing Homemade Exfoliators ...
@@ -74,16 +74,16 @@ I actually think that making homemade exfoliators is so much fun and can be grea
 
 ## Related Posts
 
-- [best tinted moisturiser for older skin uk](https://makeup.allwomenstalk.com/super-benefits-of-tinted-moisturizers/)
-- [clinique for kids](https://makeup.allwomenstalk.com/clinique-products-that-work-wonders/)
-- [dangers of cosmetic ingredients](https://makeup.allwomenstalk.com/dangerous-cosmetic-ingredients-to-avoid/)
-- [most expensive skincare product ever](https://skincare.allwomenstalk.com/most-expensive-skin-care-products-on-the-market/)
-- [homemade facials](https://skincare.allwomenstalk.com/skin-stimulating-diy-facials-to-try/)
-- [fabulous foundations](https://makeup.allwomenstalk.com/fabulous-foundations-for-dry-skin/)
 - [usage of vaseline](https://skincare.allwomenstalk.com/great-uses-for-vaseline/)
-- [dermalogica tinted moisturizer](https://beauty.allwomenstalk.com/great-tinted-moisturisers/)
+- [clinique for kids](https://makeup.allwomenstalk.com/clinique-products-that-work-wonders/)
+- [most expensive skincare product ever](https://skincare.allwomenstalk.com/most-expensive-skin-care-products-on-the-market/)
 - [natural skincare for all skin types](https://skincare.allwomenstalk.com/natural-skincare-treatments-for-all-skin-types/)
+- [best tinted moisturiser for older skin uk](https://makeup.allwomenstalk.com/super-benefits-of-tinted-moisturizers/)
+- [homemade facials](https://skincare.allwomenstalk.com/skin-stimulating-diy-facials-to-try/)
 - [teas that are good for your skin](https://skincare.allwomenstalk.com/terrific-teas-your-skin-will-love/)
+- [dermalogica tinted moisturizer](https://beauty.allwomenstalk.com/great-tinted-moisturisers/)
+- [fabulous foundations](https://makeup.allwomenstalk.com/fabulous-foundations-for-dry-skin/)
+- [dangers of cosmetic ingredients](https://makeup.allwomenstalk.com/dangerous-cosmetic-ingredients-to-avoid/)
 - [7 Great Exfoliants for Every Skin Type ...](https://skincare.allwomenstalk.com/7-great-exfoliants-for-every-skin-type/)
 - [7 Recipes for Natural Homemade Facials ...](https://skincare.allwomenstalk.com/7-recipes-for-natural-homemade-facials/)
 

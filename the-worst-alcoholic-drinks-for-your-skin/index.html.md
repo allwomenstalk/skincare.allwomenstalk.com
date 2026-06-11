@@ -3,7 +3,7 @@ title: "The Worst Alcoholic Drinks for Doing a Number on Your Skin ..."
 description: "Tequila; Beer; Gin & Tonic; White Wine; Mojito; More ..."
 url: "https://skincare.allwomenstalk.com/the-worst-alcoholic-drinks-for-your-skin/"
 category: "skincare"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # The Worst Alcoholic Drinks for Doing a Number on Your Skin ...
@@ -42,14 +42,14 @@ Red wine is famous for encouraging your blood vessels to open up, which can incr
 
 - [10 Simple but Super Tips for Glowing Skin ...](https://skincare.allwomenstalk.com/simple-tips-to-achieving-glowing-skin/)
 - [Skincare Tips to Show Your Neck Love for Girls Neg...](https://skincare.allwomenstalk.com/skincare-tips-for-your-neck/)
-- [3 Inspired Reasons Why You Shouldn't Worry about Y...](https://skincare.allwomenstalk.com/why-you-shouldnt-worry-about-your-skin-type/)
-- [Foolproof Ways to Preventing Wrinkles ...](https://beauty.allwomenstalk.com/fool-proof-ways-to-beat-wrinkles/)
-- [Genius Reasons Why You Should Add Aloe Vera to You...](https://skincare.allwomenstalk.com/why-you-should-add-aloe-vera-into-your-beauty-routine/)
 - [Fab Ways to Beat Bad Skin Days ...](https://skincare.allwomenstalk.com/ways-to-beat-bad-skin-days/)
+- [3 Inspired Reasons Why You Shouldn't Worry about Y...](https://skincare.allwomenstalk.com/why-you-shouldnt-worry-about-your-skin-type/)
 - [Life Changing Ways on How to Get Rid of Acne in On...](https://skincare.allwomenstalk.com/how-to-get-rid-of-acne-in-a-week/)
-- [How to Properly do a Skin Detox for a Luminous Glo...](https://skincare.allwomenstalk.com/how-to-do-a-skin-detox/)
 - [Life Changing Skincare Routine for Healthy Glowing...](https://skincare.allwomenstalk.com/skincare-routine-for-healthy-skin/)
+- [Genius Reasons Why You Should Add Aloe Vera to You...](https://skincare.allwomenstalk.com/why-you-should-add-aloe-vera-into-your-beauty-routine/)
+- [Foolproof Ways to Preventing Wrinkles ...](https://beauty.allwomenstalk.com/fool-proof-ways-to-beat-wrinkles/)
 - [jackie aina engagement ring](https://skincare.allwomenstalk.com/video-tutorials-of-skincare-basics/)
+- [How to Properly do a Skin Detox for a Luminous Glo...](https://skincare.allwomenstalk.com/how-to-do-a-skin-detox/)
 - [8 Ingredients to Avoid in Your Skin Care Products ...](https://skincare.allwomenstalk.com/ingredients-to-avoid-in-your-skin-care-products/)
 - [7 Bad Habits That Affect Your Skin ...](https://allwomenstalk.com/7-bad-habits-that-affect-your-skin/)
 

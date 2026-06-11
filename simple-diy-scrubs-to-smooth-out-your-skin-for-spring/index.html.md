@@ -3,7 +3,7 @@ title: "9 Simple DIY Scrubs to Smooth out Your Skin for Spring ..."
 description: "Luxurious Sugar Scrub; Banana Sugar Body Scrub; Tomato and Sugar Facial Scrub; Cinnamon Sugar Lip Scrub; Citrus Salt Scrub; More ..."
 url: "https://skincare.allwomenstalk.com/simple-diy-scrubs-to-smooth-out-your-skin-for-spring/"
 category: "skincare"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 9 Simple DIY Scrubs to Smooth out Your Skin for Spring ...
@@ -158,15 +158,15 @@ I think there's a scrub for just about every part of your body you can use a scr
 ## Related Posts
 
 - [lavender scented items](https://skincare.allwomenstalk.com/lavender-scented-skincare-products-sure-to-relax-you/)
-- [food masks for skin](https://skincare.allwomenstalk.com/best-foods-for-face-masks/)
-- [shea butter vitamins](https://skincare.allwomenstalk.com/reasons-to-use-shea-butter-for-your-skin/)
-- [best cleansing powder](https://skincare.allwomenstalk.com/beautifying-facial-cleansing-powders-you-cant-pass-up/)
-- [natural skin exfoliants](https://skincare.allwomenstalk.com/kinds-of-natural-exfoliants-for-your-skin/)
+- [boscia konjac cleansing sponge](https://skincare.allwomenstalk.com/cool-and-unique-facial-cleansing-tools/)
 - [cheap vs expensive skin care products](https://skincare.allwomenstalk.com/reasons-not-to-waste-money-on-expensive-skincare-products/)
 - [indian healing clay whole foods](https://skincare.allwomenstalk.com/reasons-to-use-bentonite-clay-for-beautiful-skin/)
-- [best shaving cream for women's hair](https://skincare.allwomenstalk.com/womens-shaving-cream-brands-for-your-smoothest-shave-ever/)
+- [best cleansing powder](https://skincare.allwomenstalk.com/beautifying-facial-cleansing-powders-you-cant-pass-up/)
+- [food masks for skin](https://skincare.allwomenstalk.com/best-foods-for-face-masks/)
+- [shea butter vitamins](https://skincare.allwomenstalk.com/reasons-to-use-shea-butter-for-your-skin/)
 - [fruity skincare](https://skincare.allwomenstalk.com/delicious-fruity-skincare-products-to-make-you-happy/)
-- [boscia konjac cleansing sponge](https://skincare.allwomenstalk.com/cool-and-unique-facial-cleansing-tools/)
+- [natural skin exfoliants](https://skincare.allwomenstalk.com/kinds-of-natural-exfoliants-for-your-skin/)
+- [best shaving cream for women's hair](https://skincare.allwomenstalk.com/womens-shaving-cream-brands-for-your-smoothest-shave-ever/)
 - [9 Home-Made Face Masks for Winter Skin Care ...](https://allwomenstalk.com/5-home-made-face-masks-for-winter-skin-care/)
 - [9 Homemade Skincare Treatments ...](https://allwomenstalk.com/9-homemade-skincare-treatments/)
 
