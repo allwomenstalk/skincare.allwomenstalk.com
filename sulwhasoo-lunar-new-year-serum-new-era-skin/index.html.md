@@ -3,7 +3,7 @@ title: "Sulwhasoo’s Lunar New Year Serum for a New Era of Skin"
 description: "Legacy Written in Ginseng; The First Step That Changes Everything; The Science of Radiance; The Ritual of Renewal; A Bottle That Tells a Story; More ..."
 url: "https://skincare.allwomenstalk.com/sulwhasoo-lunar-new-year-serum-new-era-skin/"
 category: "skincare"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # Sulwhasoo’s Lunar New Year Serum for a New Era of Skin

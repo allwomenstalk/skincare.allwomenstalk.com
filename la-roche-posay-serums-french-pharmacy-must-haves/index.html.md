@@ -3,7 +3,7 @@ title: "La Roche-Posay’s Serum Wardrobe - The French Girl Approach to Anti-Agi
 description: "The Hydrator: Hyalu B5 Pure Hyaluronic Acid Serum; The Dark Spot Corrector: Mela B3 Dark Spot Serum with Melasyl™ + Niacinamide; The Radiance Booster: Vitamin C12 Serum; The Line-Smoother: Retinol B3 Pure Retinol Serum; The French Pharmacy Philosophy, Modernized; More ..."
 url: "https://skincare.allwomenstalk.com/la-roche-posay-serums-french-pharmacy-must-haves/"
 category: "skincare"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # La Roche\-Posay’s Serum Wardrobe \- The French Girl Approach to Anti\-Aging …

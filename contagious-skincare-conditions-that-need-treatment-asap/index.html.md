@@ -3,7 +3,7 @@ title: "7 Contagious Skincare Conditions That Need Treatment ASAP ..."
 description: "Impetigo; MRSA; Scabies; Ringworm; Athlete’s Foot; More ..."
 url: "https://skincare.allwomenstalk.com/contagious-skincare-conditions-that-need-treatment-asap/"
 category: "skincare"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 7 Contagious Skincare Conditions That Need Treatment ASAP ...
@@ -43,15 +43,15 @@ Have you ever had one of these conditions? How did you treat it?
 ## Related Posts
 
 - [reasons for skin rashes](https://skincare.allwomenstalk.com/possible-causes-of-skin-rashes/)
-- [i need to freshen up](https://skincare.allwomenstalk.com/ways-to-freshen-up-your-skin-when-you-dont-have-time-for-a-shower/)
 - [dermalmd blemish serum](https://skincare.allwomenstalk.com/facts-about-whiteheads-that-will-help-you-treat-them/)
-- [This is How Girls with Gorge Skin do Their Home Fa...](https://skincare.allwomenstalk.com/essential-tips-for-getting-the-most-out-of-a-home-facial/)
-- [paris palette maximalist eyeshadow amber](https://skincare.allwomenstalk.com/tips-on-buying-and-applying-sunscreen/)
 - [moisturizers for women in 30s](https://skincare.allwomenstalk.com/skincare-tips-for-women-in-their-30s/)
-- [unexpected places to check for skin cancer](https://skincare.allwomenstalk.com/weird-places-you-need-to-check-for-skin-cancer/)
+- [paris palette maximalist eyeshadow amber](https://skincare.allwomenstalk.com/tips-on-buying-and-applying-sunscreen/)
 - [how to moisturize dry face overnight](https://skincare.allwomenstalk.com/ways-to-moisturize-your-skin-overnight/)
 - [skin problems in summer](https://skincare.allwomenstalk.com/skin-problems-that-get-worse-during-summer/)
+- [This is How Girls with Gorge Skin do Their Home Fa...](https://skincare.allwomenstalk.com/essential-tips-for-getting-the-most-out-of-a-home-facial/)
+- [unexpected places to check for skin cancer](https://skincare.allwomenstalk.com/weird-places-you-need-to-check-for-skin-cancer/)
 - [reasons to go to a dermatologist](https://skincare.allwomenstalk.com/reasons-to-visit-your-dermatologist/)
+- [i need to freshen up](https://skincare.allwomenstalk.com/ways-to-freshen-up-your-skin-when-you-dont-have-time-for-a-shower/)
 - [7 Bad Habits That Affect Your Skin ...](https://allwomenstalk.com/7-bad-habits-that-affect-your-skin/)
 - [7 Signs That Your Skin Needs More Care ...](https://allwomenstalk.com/7-signs-that-your-skin-needs-more-care/)
 
