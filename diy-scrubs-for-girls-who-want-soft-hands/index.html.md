@@ -3,7 +3,7 @@ title: "Super-Simple DIY Scrubs for Girls Who Want Soft Hands ..."
 description: "Coconut Oil Salt Scrub with Rosemary and Mint; Rose Sugar Scrub; Lavender Vanilla Salt Scrub; Pink Himalayan Salt Scrub; Gardener’s Hand Scrub; More ..."
 url: "https://skincare.allwomenstalk.com/diy-scrubs-for-girls-who-want-soft-hands/"
 category: "skincare"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # Super\-Simple DIY Scrubs for Girls Who Want Soft Hands ...
@@ -96,16 +96,16 @@ Have fun making and using your hand scrubs.
 
 ## Related Posts
 
-- [lina's body butters](https://skincare.allwomenstalk.com/body-oil-products-for-girls-who-want-the-smoothest-skin-this-winter/)
 - [best skincare products under $30](https://skincare.allwomenstalk.com/best-skincare-products-under-50-for-girls-who-really-love-their-skin/)
 - [shiny face skin](https://skincare.allwomenstalk.com/diy-face-masks-for-girls-with-shiny-skin/)
-- [homemade chemical peels](https://skincare.allwomenstalk.com/latest-penetrating-diy-facial-peels-for-girls-who-want-a-deep-glow/)
 - [newest korean](https://beauty.allwomenstalk.com/newest-korean-beauty-products-for-girls-who-want-nothing-but-perfect-skin/)
-- [luxurious bubble bath](https://beauty.allwomenstalk.com/simple-step-by-step-guide-the-most-luxurious-bubble-bath-of-your-life/)
-- [This Natural Skincare Every Girl Shoule Be Using i...](https://skincare.allwomenstalk.com/this-natural-skincare-every-girl-shoule-be-using-in-winter/)
-- [rhassoul clay skin benefits](https://skincare.allwomenstalk.com/awesome-reasons-to-incorporate-rhassoul-clay-into-your-beauty-routine/)
 - [boka toothpaste side effects](https://beauty.allwomenstalk.com/best-natural-toothpastes-for-girls-staying-away-from-chemicals/)
 - [exposed acne product](https://skincare.allwomenstalk.com/you-can-now-get-this-popular-acne-medication-over-the-counter-for-the-first-time-ever/)
+- [luxurious bubble bath](https://beauty.allwomenstalk.com/simple-step-by-step-guide-the-most-luxurious-bubble-bath-of-your-life/)
+- [This Natural Skincare Every Girl Shoule Be Using i...](https://skincare.allwomenstalk.com/this-natural-skincare-every-girl-shoule-be-using-in-winter/)
+- [homemade chemical peels](https://skincare.allwomenstalk.com/latest-penetrating-diy-facial-peels-for-girls-who-want-a-deep-glow/)
+- [lina's body butters](https://skincare.allwomenstalk.com/body-oil-products-for-girls-who-want-the-smoothest-skin-this-winter/)
+- [rhassoul clay skin benefits](https://skincare.allwomenstalk.com/awesome-reasons-to-incorporate-rhassoul-clay-into-your-beauty-routine/)
 - [8 Great DIY Masks for Pampered Hands and Feet ...](https://skincare.allwomenstalk.com/great-diy-masks-for-pampered-hands-and-feet/)
 - [9 Luxurious Hand Creams for Your Softest Hands Eve...](https://skincare.allwomenstalk.com/luxurious-hand-creams-for-your-softest-hands-ever/)
 
