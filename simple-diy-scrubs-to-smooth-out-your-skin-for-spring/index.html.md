@@ -3,7 +3,7 @@ title: "9 Simple DIY Scrubs to Smooth out Your Skin for Spring ..."
 description: "Luxurious Sugar Scrub; Banana Sugar Body Scrub; Tomato and Sugar Facial Scrub; Cinnamon Sugar Lip Scrub; Citrus Salt Scrub; More ..."
 url: "https://skincare.allwomenstalk.com/simple-diy-scrubs-to-smooth-out-your-skin-for-spring/"
 category: "skincare"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 9 Simple DIY Scrubs to Smooth out Your Skin for Spring ...
@@ -157,16 +157,16 @@ I think there's a scrub for just about every part of your body you can use a scr
 
 ## Related Posts
 
-- [boscia konjac cleansing sponge](https://skincare.allwomenstalk.com/cool-and-unique-facial-cleansing-tools/)
 - [indian healing clay whole foods](https://skincare.allwomenstalk.com/reasons-to-use-bentonite-clay-for-beautiful-skin/)
-- [lavender scented items](https://skincare.allwomenstalk.com/lavender-scented-skincare-products-sure-to-relax-you/)
 - [cheap vs expensive skin care products](https://skincare.allwomenstalk.com/reasons-not-to-waste-money-on-expensive-skincare-products/)
-- [fruity skincare](https://skincare.allwomenstalk.com/delicious-fruity-skincare-products-to-make-you-happy/)
-- [natural skin exfoliants](https://skincare.allwomenstalk.com/kinds-of-natural-exfoliants-for-your-skin/)
-- [food masks for skin](https://skincare.allwomenstalk.com/best-foods-for-face-masks/)
-- [best cleansing powder](https://skincare.allwomenstalk.com/beautifying-facial-cleansing-powders-you-cant-pass-up/)
 - [best shaving cream for women's hair](https://skincare.allwomenstalk.com/womens-shaving-cream-brands-for-your-smoothest-shave-ever/)
+- [boscia konjac cleansing sponge](https://skincare.allwomenstalk.com/cool-and-unique-facial-cleansing-tools/)
 - [shea butter vitamins](https://skincare.allwomenstalk.com/reasons-to-use-shea-butter-for-your-skin/)
+- [best cleansing powder](https://skincare.allwomenstalk.com/beautifying-facial-cleansing-powders-you-cant-pass-up/)
+- [food masks for skin](https://skincare.allwomenstalk.com/best-foods-for-face-masks/)
+- [lavender scented items](https://skincare.allwomenstalk.com/lavender-scented-skincare-products-sure-to-relax-you/)
+- [natural skin exfoliants](https://skincare.allwomenstalk.com/kinds-of-natural-exfoliants-for-your-skin/)
+- [fruity skincare](https://skincare.allwomenstalk.com/delicious-fruity-skincare-products-to-make-you-happy/)
 - [9 Home-Made Face Masks for Winter Skin Care ...](https://allwomenstalk.com/5-home-made-face-masks-for-winter-skin-care/)
 - [9 Homemade Skincare Treatments ...](https://allwomenstalk.com/9-homemade-skincare-treatments/)
 

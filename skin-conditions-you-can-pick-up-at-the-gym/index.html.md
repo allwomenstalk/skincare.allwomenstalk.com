@@ -3,7 +3,7 @@ title: "7 Skin Conditions You Can Pick up at the Gym ..."
 description: "Athlete’s Foot; Fungal Infections; MRSA; Warts; Impetigo; More ..."
 url: "https://skincare.allwomenstalk.com/skin-conditions-you-can-pick-up-at-the-gym/"
 category: "skincare"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 7 Skin Conditions You Can Pick up at the Gym ...
@@ -42,15 +42,15 @@ Have you ever brought something nasty home from the gym? How did you treat it? I
 
 ## Related Posts
 
-- [benefits of bodyweight training](https://fitness.allwomenstalk.com/amazing-benefits-of-bodyweight-exercises/)
-- [trouble spots](https://fitness.allwomenstalk.com/exercises-to-tone-your-trouble-spots/)
+- [get in shape in two weeks](https://fitness.allwomenstalk.com/workouts-to-get-you-in-your-best-shape-in-2-weeks/)
 - [how to recover quickly from a workout](https://fitness.allwomenstalk.com/ways-to-recover-quicklyfrom-your-workouts/)
-- [jada pinkett smith fitness](https://fitness.allwomenstalk.com/better-butt-workouts-from-jada-pinkett-smith/)
 - [perfect body ebony](https://fitness.allwomenstalk.com/best-exercise-infographics-for-your-perfect-body/)
 - [magic carpet yoga mat](https://fitness.allwomenstalk.com/fantastic-yoga-mats-for-your-next-session/)
+- [benefits of bodyweight training](https://fitness.allwomenstalk.com/amazing-benefits-of-bodyweight-exercises/)
 - [gym once a week](https://fitness.allwomenstalk.com/top-benefits-of-going-to-the-gym-every-week/)
-- [get in shape in two weeks](https://fitness.allwomenstalk.com/workouts-to-get-you-in-your-best-shape-in-2-weeks/)
 - [does yoga make you flexible](https://fitness.allwomenstalk.com/yoga-poses-to-help-you-become-more-flexible/)
+- [jada pinkett smith fitness](https://fitness.allwomenstalk.com/better-butt-workouts-from-jada-pinkett-smith/)
+- [trouble spots](https://fitness.allwomenstalk.com/exercises-to-tone-your-trouble-spots/)
 - [site:allwomenstalk.com](https://fitness.allwomenstalk.com/heart-rate-variability-training-workouts/)
 - [7 Ways to Avoid Illness in the Gym ...](https://health.allwomenstalk.com/7-ways-to-avoid-illness-in-the-gym/)
 - [7 Ways to Motivate Yourself at the Gym ...](https://allwomenstalk.com/7-ways-to-motivate-yourself-at-the-gym/)
