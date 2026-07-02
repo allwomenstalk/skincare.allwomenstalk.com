@@ -3,7 +3,7 @@ title: "Distract Yourself from Skin Harming Pimple Picking with THESE Tips ..."
 description: "Call Your Bestie and Catch up on All the Gossip; Paint Your Nails a Fabulous New Color; Grab a Book or Magazine and Read on the Back Porch; Take a Walk or Lift Some Weights; Play with Your Kids – the Best Distraction around; More ..."
 url: "https://skincare.allwomenstalk.com/ways-to-distract-yourself-from-pimple-picking/"
 category: "skincare"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # Distract Yourself from Skin Harming Pimple Picking with THESE Tips ...
@@ -42,16 +42,16 @@ How do you keep yourself from picking at your pimples? Will you try any of these
 
 ## Related Posts
 
+- [simplify your skincare routine](https://skincare.allwomenstalk.com/signs-you-need-to-simplify-your-skincare-routine/)
 - [bad habits that destroy your confidence](https://skincare.allwomenstalk.com/dont-let-these-bad-habits-ruin-your-skin/)
+- [7 Banishing Techniques for Girls Who Feel Embarras...](https://skincare.allwomenstalk.com/banish-body-acne-with-this-nifty-guide/)
+- [loreal color riche le smoky shadow glistening garn...](https://skincare.allwomenstalk.com/the-right-way-to-exfoliate-your-skin/)
+- [Teach Your Man These 7 Skincare Tricks ...](https://skincare.allwomenstalk.com/teach-your-man-these-skincare-tricks/)
+- [Girls Guide to Nutrition to Help Have Healthier Sk...](https://skincare.allwomenstalk.com/a-nutrition-guide-for-healthier-skin/)
+- [pros and cons of chemical peels](https://skincare.allwomenstalk.com/what-you-should-know-about-chemical-peels/)
+- [7 Great Tips for Women Who Want Their Skin Hydrate...](https://skincare.allwomenstalk.com/tips-to-prevent-your-skin-from-dehydration/)
 - [Girl's Guide to Diminish Dark Spots on Your Skin ....](https://skincare.allwomenstalk.com/how-to-diminish-the-dark-spots-on-your-skin/)
 - [Save Tons of Money with This DIY Face Mask That Ge...](https://skincare.allwomenstalk.com/the-diy-face-mask-that-gets-rid-of-acne/)
-- [7 Banishing Techniques for Girls Who Feel Embarras...](https://skincare.allwomenstalk.com/banish-body-acne-with-this-nifty-guide/)
-- [Girls Guide to Nutrition to Help Have Healthier Sk...](https://skincare.allwomenstalk.com/a-nutrition-guide-for-healthier-skin/)
-- [simplify your skincare routine](https://skincare.allwomenstalk.com/signs-you-need-to-simplify-your-skincare-routine/)
-- [7 Great Tips for Women Who Want Their Skin Hydrate...](https://skincare.allwomenstalk.com/tips-to-prevent-your-skin-from-dehydration/)
-- [loreal color riche le smoky shadow glistening garn...](https://skincare.allwomenstalk.com/the-right-way-to-exfoliate-your-skin/)
-- [pros and cons of chemical peels](https://skincare.allwomenstalk.com/what-you-should-know-about-chemical-peels/)
-- [Teach Your Man These 7 Skincare Tricks ...](https://skincare.allwomenstalk.com/teach-your-man-these-skincare-tricks/)
 - [How to Free Yourself from Breakouts Naturally ...](https://lifestyle.allwomenstalk.com/how-to-free-yourself-from-breakouts-naturally/)
 - [Beauty Tips: Acne Skin Clear Methods ...](https://allwomenstalk.com/beauty-tips-acne-skin-clear-methods/)
 
