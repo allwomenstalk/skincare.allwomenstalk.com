@@ -3,7 +3,7 @@ title: "4 Luxurious Gifts from Sulwhasoo’s 2025 Holiday Collection to Indulge 
 description: "Cult Classics Set – $190 (Retail Value: $249); Concentrated Ginseng Rejuvenating Eye Cream Set – $123 (Retail Value: $158); Concentrated Ginseng Rejuvenating Cream Set – $260 (Retail Value: $349); Glowing Lip Balm – $38; Why Sulwhasoo Remains a Holiday Staple; More ..."
 url: "https://skincare.allwomenstalk.com/luxurious-gifts-sulwhasoo-2025-holiday-collection/"
 category: "gifts"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 4 Luxurious Gifts from Sulwhasoo’s 2025 Holiday Collection to Indulge in …
@@ -14,7 +14,7 @@ Sulwhasoo’s philosophy is simple yet profound: **beauty that transcends time**
 
 **Let’s unwrap the collection, shall we?**
 
-## **Cult Classics Set – $190 (Retail Value: $249)**
+## Cult Classics Set – $190 (Retail Value: $249)
 
 ![](https://img.allw.mn/uploads/google-doc-ref-image2-1765247722483.png)
 
@@ -36,7 +36,7 @@ Concentrated Ginseng Rejuvenating Cream 30mL / 1.01 fl. oz.
 
 Benefits: Hydrates, visibly firms, and revitalizes for a luminous, youthful glow.
 
-## **Concentrated Ginseng Rejuvenating Eye Cream Set – $123 (Retail Value: $158)**
+## Concentrated Ginseng Rejuvenating Eye Cream Set – $123 (Retail Value: $158)
 
 ![](https://img.allw.mn/uploads/google-doc-ref-image3-1765247724436.png)
 
@@ -61,7 +61,7 @@ Concentrated Ginseng Rejuvenating Cream 5mL / 0.16 fl. oz.
 
 Benefits: Hydrates, firms, and brightens the delicate eye area while targeting fine lines, puffiness, and dark circles.
 
-## **Concentrated Ginseng Rejuvenating Cream Set – $260 (Retail Value: $349)**
+## Concentrated Ginseng Rejuvenating Cream Set – $260 (Retail Value: $349)
 
 ![](https://img.allw.mn/uploads/google-doc-ref-image4-1765247725819.png)
 
@@ -89,7 +89,7 @@ Concentrated Ginseng Rejuvenating Serum 8mL / 0.27 fl. oz.
 
 Benefits: Firm, smooth, and deeply nourish skin while visibly addressing signs of aging.
 
-## **Glowing Lip Balm  – $38**
+## Glowing Lip Balm  – $38
 
 ![](https://img.allw.mn/uploads/google-doc-ref-image5-1765247726565.png)
 
@@ -101,19 +101,19 @@ Why it’s irresistible: This is a gift that says, “I care about your glow, do
 
 Perfect for: Friends who love multitasking products, anyone with a penchant for subtle luxury, or as a charming stocking stuffer with unmistakable style.
 
-## **Why Sulwhasoo Remains a Holiday Staple**
+## Why Sulwhasoo Remains a Holiday Staple
 
 Beyond the tangible, these gift sets convey something even more special: an invitation to slow down, indulge in ritual, and celebrate the art of self-care. Sulwhasoo has long stood at the intersection of heritage and innovation, crafting products that are not only clinically efficacious but also deeply rooted in centuries-old Korean wisdom. The 2025 Holiday Collection continues this legacy, transforming everyday skincare into a luxurious ritual of renewal.
 
 From the signature First Care Activating Serum, beloved for its hydrating and firming properties, to the ginseng-powered Rejuvenating Creams and Serums that combat signs of aging with grace, each set is a story waiting to be unwrapped. There’s a reason beauty editors, skincare aficionados, and K-beauty devotees alike return year after year: Sulwhasoo is a masterclass in what happens when artistry meets science.
 
-## **The Art of Gifting, Sulwhasoo-Style**
+## The Art of Gifting, Sulwhasoo-Style
 
 Holiday shopping can be stressful - but selecting the perfect Sulwhasoo gift is delightfully simple. Whether you’re treating a loved one or indulging yourself, these sets are curated to suit every level of devotion, from the curious beginner to the seasoned skincare aficionado. And the cherry on top? Every set arrives beautifully packaged, ready for the holidays, so you can skip the wrapping paper panic and focus on what truly matters: the joy of giving.
 
 With Sulwhasoo, each gift isn’t just a skincare set - it’s an invitation to experience heritage, luxury, and transformation, all in one elegantly curated box. This holiday season, let your gifts speak volumes, shimmering with sophistication, grace, and that inimitable Sulwhasoo glow.
 
-## **Where to Shop**
+## Where to Shop
 
 **All sets are available now** at [us.sulwhasoo.com](https://us.sulwhasoo.com), and with limited holiday edition availability, now is the perfect moment to secure these treasures. **From Cult Classics to Glowing Lip Balms, Sulwhasoo’s 2025 Holiday Collection promises to elevate your gifting game** while offering an unmatched ritual of radiance.
 
