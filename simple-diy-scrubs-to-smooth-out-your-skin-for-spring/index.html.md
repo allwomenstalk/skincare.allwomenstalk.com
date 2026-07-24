@@ -3,7 +3,7 @@ title: "9 Simple DIY Scrubs to Smooth out Your Skin for Spring ..."
 description: "Luxurious Sugar Scrub; Banana Sugar Body Scrub; Tomato and Sugar Facial Scrub; Cinnamon Sugar Lip Scrub; Citrus Salt Scrub; More ..."
 url: "https://skincare.allwomenstalk.com/simple-diy-scrubs-to-smooth-out-your-skin-for-spring/"
 category: "skincare"
-last_updated: "2026-07-21"
+last_updated: "2026-07-24"
 ---
 
 # 9 Simple DIY Scrubs to Smooth out Your Skin for Spring ...
@@ -157,16 +157,16 @@ I think there's a scrub for just about every part of your body you can use a scr
 
 ## Related Posts
 
-- [best cleansing powder](https://skincare.allwomenstalk.com/beautifying-facial-cleansing-powders-you-cant-pass-up/)
 - [boscia konjac cleansing sponge](https://skincare.allwomenstalk.com/cool-and-unique-facial-cleansing-tools/)
-- [indian healing clay whole foods](https://skincare.allwomenstalk.com/reasons-to-use-bentonite-clay-for-beautiful-skin/)
-- [shea butter vitamins](https://skincare.allwomenstalk.com/reasons-to-use-shea-butter-for-your-skin/)
 - [best shaving cream for women's hair](https://skincare.allwomenstalk.com/womens-shaving-cream-brands-for-your-smoothest-shave-ever/)
-- [fruity skincare](https://skincare.allwomenstalk.com/delicious-fruity-skincare-products-to-make-you-happy/)
 - [cheap vs expensive skin care products](https://skincare.allwomenstalk.com/reasons-not-to-waste-money-on-expensive-skincare-products/)
-- [food masks for skin](https://skincare.allwomenstalk.com/best-foods-for-face-masks/)
+- [best cleansing powder](https://skincare.allwomenstalk.com/beautifying-facial-cleansing-powders-you-cant-pass-up/)
 - [lavender scented items](https://skincare.allwomenstalk.com/lavender-scented-skincare-products-sure-to-relax-you/)
+- [shea butter vitamins](https://skincare.allwomenstalk.com/reasons-to-use-shea-butter-for-your-skin/)
+- [food masks for skin](https://skincare.allwomenstalk.com/best-foods-for-face-masks/)
 - [natural skin exfoliants](https://skincare.allwomenstalk.com/kinds-of-natural-exfoliants-for-your-skin/)
+- [indian healing clay whole foods](https://skincare.allwomenstalk.com/reasons-to-use-bentonite-clay-for-beautiful-skin/)
+- [fruity skincare](https://skincare.allwomenstalk.com/delicious-fruity-skincare-products-to-make-you-happy/)
 - [9 Home-Made Face Masks for Winter Skin Care ...](https://allwomenstalk.com/5-home-made-face-masks-for-winter-skin-care/)
 - [9 Homemade Skincare Treatments ...](https://allwomenstalk.com/9-homemade-skincare-treatments/)
 
