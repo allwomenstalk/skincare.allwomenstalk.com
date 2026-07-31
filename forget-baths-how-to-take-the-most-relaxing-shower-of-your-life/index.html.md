@@ -42,16 +42,16 @@ So even if you don't have a bath you can still have a lovely relaxing shower. Le
 
 ## Related Posts
 
-- [agoraphobia tips](https://health.allwomenstalk.com/tips-for-coping-with-agoraphobia/)
-- [Can't Concentrate? These Will Help ...](https://health.allwomenstalk.com/cant-concentrate-better-try-these-natural-ways-to-boost-your-focus/)
-- [How to Calm Your Nerves in Social Situations ...](https://lifestyle.allwomenstalk.com/how-to-calm-your-nerves-in-social-situations/)
-- [What to do when You're Burnt out from a Long Day o...](https://health.allwomenstalk.com/what-to-do-when-youre-burnt-out-from-a-long-day-of-classes/)
-- [How to Calm down and De-stress after a Horrible Da...](https://health.allwomenstalk.com/how-to-calm-down-and-de-stress-after-a-horrible-day/)
-- [How to Control Your Emotions ️️during That Time of...](https://health.allwomenstalk.com/how-to-control-your-emotions-during-that-time-of-the-month/)
-- [ignoring distractions](https://teen.allwomenstalk.com/raise-your-grades-with-these-dynamo-tips-for-ignoring-distractions/)
+- [Challenge Yourself to Avoid These Negative Thought...](https://inspiration.allwomenstalk.com/challenge-yourself-to-avoid-these-negative-thoughts-for-hours/)
 - [How to Keep Your Cool when Things Are Not Going as...](https://inspiration.allwomenstalk.com/how-to-keep-your-cool-when-things-are-not-going-as-planned/)
 - [Cheer Yourself up with These 7 Rut Ruiners ...](https://inspiration.allwomenstalk.com/cheer-yourself-up-with-these-rut-ruiners/)
-- [Challenge Yourself to Avoid These Negative Thought...](https://inspiration.allwomenstalk.com/challenge-yourself-to-avoid-these-negative-thoughts-for-hours/)
+- [ignoring distractions](https://teen.allwomenstalk.com/raise-your-grades-with-these-dynamo-tips-for-ignoring-distractions/)
+- [What to do when You're Burnt out from a Long Day o...](https://health.allwomenstalk.com/what-to-do-when-youre-burnt-out-from-a-long-day-of-classes/)
+- [Can't Concentrate? These Will Help ...](https://health.allwomenstalk.com/cant-concentrate-better-try-these-natural-ways-to-boost-your-focus/)
+- [agoraphobia tips](https://health.allwomenstalk.com/tips-for-coping-with-agoraphobia/)
+- [How to Calm down and De-stress after a Horrible Da...](https://health.allwomenstalk.com/how-to-calm-down-and-de-stress-after-a-horrible-day/)
+- [How to Control Your Emotions ️️during That Time of...](https://health.allwomenstalk.com/how-to-control-your-emotions-during-that-time-of-the-month/)
+- [How to Calm Your Nerves in Social Situations ...](https://lifestyle.allwomenstalk.com/how-to-calm-your-nerves-in-social-situations/)
 - [What's in Your Shower?](https://allwomenstalk.com/whats-in-your-shower/)
 - [Relaxer Hair Care Tips from the Pro ...](https://allwomenstalk.com/relaxer-hair-care-tips-from-the-pro/)
 

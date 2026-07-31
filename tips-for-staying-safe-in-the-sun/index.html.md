@@ -60,16 +60,16 @@ Many schools, such as in New York State, do not have air conditioners and rooms 
 
 ## Related Posts
 
-- [when do tan lines go away](https://skincare.allwomenstalk.com/how-to-make-weird-tan-lines-fade-quickly/)
-- [treatyourskin](https://skincare.allwomenstalk.com/how-to-treat-your-skin-with-respect/)
-- [glycerin for cracked heels](https://skincare.allwomenstalk.com/tips-for-getting-rid-of-cracked-heels-and-dry-skin/)
-- [how to make face glow naturally overnight](https://skincare.allwomenstalk.com/simple-ways-to-make-your-skin-glow-overnight/)
-- [reverse uv damage](https://beauty.allwomenstalk.com/can-you-reverse-the-visible-signs-of-sun-damage/)
-- [tissue test for skin type](https://skincare.allwomenstalk.com/how-to-do-the-tissue-test-to-determine-your-skin-type/)
-- [baby shoulder dimples](https://beauty.allwomenstalk.com/steps-to-take-if-you-want-dimples/)
 - [things to achieve by 30](https://skincare.allwomenstalk.com/things-to-do-to-achieve-healthy-skin-in-30-days/)
-- [how to apply sunscreen to your back](https://skincare.allwomenstalk.com/pro-tips-on-how-to-put-sunscreen-your-own-back/)
+- [tissue test for skin type](https://skincare.allwomenstalk.com/how-to-do-the-tissue-test-to-determine-your-skin-type/)
+- [glycerin for cracked heels](https://skincare.allwomenstalk.com/tips-for-getting-rid-of-cracked-heels-and-dry-skin/)
 - [does a tan hide cellulite](https://skincare.allwomenstalk.com/make-cellulite-less-noticeable-with-these-helpful-tips-and-tricks/)
+- [how to make face glow naturally overnight](https://skincare.allwomenstalk.com/simple-ways-to-make-your-skin-glow-overnight/)
+- [when do tan lines go away](https://skincare.allwomenstalk.com/how-to-make-weird-tan-lines-fade-quickly/)
+- [reverse uv damage](https://beauty.allwomenstalk.com/can-you-reverse-the-visible-signs-of-sun-damage/)
+- [baby shoulder dimples](https://beauty.allwomenstalk.com/steps-to-take-if-you-want-dimples/)
+- [treatyourskin](https://skincare.allwomenstalk.com/how-to-treat-your-skin-with-respect/)
+- [how to apply sunscreen to your back](https://skincare.allwomenstalk.com/pro-tips-on-how-to-put-sunscreen-your-own-back/)
 - [8 Sun Protection Tips ...](https://skincare.allwomenstalk.com/sun-protection-tips/)
 - [10 Halloween Safety Tips to Follow ...](https://allwomenstalk.com/10-halloween-safety-tips-to-follow/)
 

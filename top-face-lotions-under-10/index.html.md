@@ -63,15 +63,15 @@ Don’t forget to moisturize, ladies! These are some of my favorite lotions that
 
 ## Related Posts
 
-- [cheap vs expensive skin care products](https://skincare.allwomenstalk.com/reasons-not-to-waste-money-on-expensive-skincare-products/)
-- [best shaving cream for women's hair](https://skincare.allwomenstalk.com/womens-shaving-cream-brands-for-your-smoothest-shave-ever/)
 - [best cleansing powder](https://skincare.allwomenstalk.com/beautifying-facial-cleansing-powders-you-cant-pass-up/)
-- [boscia konjac cleansing sponge](https://skincare.allwomenstalk.com/cool-and-unique-facial-cleansing-tools/)
 - [fruity skincare](https://skincare.allwomenstalk.com/delicious-fruity-skincare-products-to-make-you-happy/)
-- [shea butter vitamins](https://skincare.allwomenstalk.com/reasons-to-use-shea-butter-for-your-skin/)
-- [food masks for skin](https://skincare.allwomenstalk.com/best-foods-for-face-masks/)
+- [best shaving cream for women's hair](https://skincare.allwomenstalk.com/womens-shaving-cream-brands-for-your-smoothest-shave-ever/)
+- [boscia konjac cleansing sponge](https://skincare.allwomenstalk.com/cool-and-unique-facial-cleansing-tools/)
+- [cheap vs expensive skin care products](https://skincare.allwomenstalk.com/reasons-not-to-waste-money-on-expensive-skincare-products/)
 - [indian healing clay whole foods](https://skincare.allwomenstalk.com/reasons-to-use-bentonite-clay-for-beautiful-skin/)
+- [food masks for skin](https://skincare.allwomenstalk.com/best-foods-for-face-masks/)
 - [lavender scented items](https://skincare.allwomenstalk.com/lavender-scented-skincare-products-sure-to-relax-you/)
+- [shea butter vitamins](https://skincare.allwomenstalk.com/reasons-to-use-shea-butter-for-your-skin/)
 - [homemade exfoliants](https://skincare.allwomenstalk.com/simple-diy-scrubs-to-smooth-out-your-skin-for-spring/)
 - [8 Luxurious Body Lotions ...](https://skincare.allwomenstalk.com/8-luxurious-body-lotions/)
 - [7 Great Drugstore Body Lotions ...](https://skincare.allwomenstalk.com/great-drugstore-body-lotions/)

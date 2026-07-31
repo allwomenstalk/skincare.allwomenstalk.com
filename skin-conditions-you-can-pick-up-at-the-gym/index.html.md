@@ -42,16 +42,16 @@ Have you ever brought something nasty home from the gym? How did you treat it? I
 
 ## Related Posts
 
-- [does yoga make you flexible](https://fitness.allwomenstalk.com/yoga-poses-to-help-you-become-more-flexible/)
-- [how to recover quickly from a workout](https://fitness.allwomenstalk.com/ways-to-recover-quicklyfrom-your-workouts/)
-- [magic carpet yoga mat](https://fitness.allwomenstalk.com/fantastic-yoga-mats-for-your-next-session/)
 - [gym once a week](https://fitness.allwomenstalk.com/top-benefits-of-going-to-the-gym-every-week/)
-- [perfect body ebony](https://fitness.allwomenstalk.com/best-exercise-infographics-for-your-perfect-body/)
-- [benefits of bodyweight training](https://fitness.allwomenstalk.com/amazing-benefits-of-bodyweight-exercises/)
 - [trouble spots](https://fitness.allwomenstalk.com/exercises-to-tone-your-trouble-spots/)
+- [benefits of bodyweight training](https://fitness.allwomenstalk.com/amazing-benefits-of-bodyweight-exercises/)
+- [magic carpet yoga mat](https://fitness.allwomenstalk.com/fantastic-yoga-mats-for-your-next-session/)
+- [how to recover quickly from a workout](https://fitness.allwomenstalk.com/ways-to-recover-quicklyfrom-your-workouts/)
+- [perfect body ebony](https://fitness.allwomenstalk.com/best-exercise-infographics-for-your-perfect-body/)
 - [site:allwomenstalk.com](https://fitness.allwomenstalk.com/heart-rate-variability-training-workouts/)
 - [get in shape in two weeks](https://fitness.allwomenstalk.com/workouts-to-get-you-in-your-best-shape-in-2-weeks/)
 - [jada pinkett smith fitness](https://fitness.allwomenstalk.com/better-butt-workouts-from-jada-pinkett-smith/)
+- [does yoga make you flexible](https://fitness.allwomenstalk.com/yoga-poses-to-help-you-become-more-flexible/)
 - [7 Ways to Avoid Illness in the Gym ...](https://health.allwomenstalk.com/7-ways-to-avoid-illness-in-the-gym/)
 - [7 Ways to Motivate Yourself at the Gym ...](https://allwomenstalk.com/7-ways-to-motivate-yourself-at-the-gym/)
 

@@ -56,16 +56,16 @@ I trust you'll reap the benefits of these amazing mud masks and you'll find one 
 
 ## Related Posts
 
+- [the body shop about](https://beauty.allwomenstalk.com/reasons-to-shop-at-the-body-shop/)
+- [does one size fit all](https://skincare.allwomenstalk.com/reasons-why-skincare-isnt-one-size-fits-all/)
+- [emmenice](https://skincare.allwomenstalk.com/things-to-know-about-probiotics-in-skincare/)
+- [shaving gel substitute](https://beauty.allwomenstalk.com/products-that-are-great-alternatives-to-shaving-cream/)
+- [why handmade soap is best](https://health.allwomenstalk.com/reasons-to-use-handmade-soap/)
+- [alpha hydroxy acid skin benefits](https://skincare.allwomenstalk.com/fantastic-benefits-of-alpha-hydroxy-acid-for-my-skin/)
+- [winter green scrubs](https://skincare.allwomenstalk.com/bye-bye-winter-skin-diy-sugar-scrubs-to-try/)
+- [homemade oil cleanser](https://beauty.allwomenstalk.com/homemade-beauty-products-for-top-to-toe-tlc/)
 - [dermascope magazine](https://skincare.allwomenstalk.com/informative-skincare-publications-youre-sure-to-learn-something-from/)
 - [what you need for a relaxing bath](https://beauty.allwomenstalk.com/essentials-for-a-perfect-and-relaxing-bath/)
-- [the body shop about](https://beauty.allwomenstalk.com/reasons-to-shop-at-the-body-shop/)
-- [homemade oil cleanser](https://beauty.allwomenstalk.com/homemade-beauty-products-for-top-to-toe-tlc/)
-- [why handmade soap is best](https://health.allwomenstalk.com/reasons-to-use-handmade-soap/)
-- [shaving gel substitute](https://beauty.allwomenstalk.com/products-that-are-great-alternatives-to-shaving-cream/)
-- [winter green scrubs](https://skincare.allwomenstalk.com/bye-bye-winter-skin-diy-sugar-scrubs-to-try/)
-- [alpha hydroxy acid skin benefits](https://skincare.allwomenstalk.com/fantastic-benefits-of-alpha-hydroxy-acid-for-my-skin/)
-- [emmenice](https://skincare.allwomenstalk.com/things-to-know-about-probiotics-in-skincare/)
-- [does one size fit all](https://skincare.allwomenstalk.com/reasons-why-skincare-isnt-one-size-fits-all/)
 - [7 Night Treatments for Amazing Skin ...](https://skincare.allwomenstalk.com/night-treatments-for-amazing-skin/)
 - [7 Homemade Revitalizing Masks ...](https://skincare.allwomenstalk.com/homemade-revitalizing-masks/)
 

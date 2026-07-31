@@ -112,16 +112,16 @@ Top Image Source: [blogspot.in](http://lovelylifehelen-fashion-helen.blogspot.co
 
 ## Related Posts
 
-- [lemon and baking soda for acne](https://beauty.allwomenstalk.com/home-remedies-for-acne/)
 - [vaseline eyeshadow](https://beauty.allwomenstalk.com/uses-of-vaseline/)
-- [bath salt blends](https://diy.allwomenstalk.com/bath-salts-to-make-yourself/)
-- [witch hazel for cleaning piercings](https://jewelry.allwomenstalk.com/ways-to-care-for-body-piercings/)
-- [burnt toast stomach ache](https://health.allwomenstalk.com/natural-ways-to-ease-an-upset-stomach/)
-- [baking soda itchy scalp](https://skincare.allwomenstalk.com/helpful-home-remedies-for-an-itchy-scalp/)
-- [dry hands in winter home remedies](https://skincare.allwomenstalk.com/remedies-for-dry-hands/)
 - [how to deal with a bad tattoo](https://beauty.allwomenstalk.com/ways-to-get-rid-of-a-bad-tattoo/)
+- [bath salt blends](https://diy.allwomenstalk.com/bath-salts-to-make-yourself/)
+- [dry hands in winter home remedies](https://skincare.allwomenstalk.com/remedies-for-dry-hands/)
 - [detox after drinking alcohol](https://health.allwomenstalk.com/ways-to-detox-after-drinking/)
 - [fighting a hangover](https://lifestyle.allwomenstalk.com/little-known-ways-to-fight-a-hangover/)
+- [burnt toast stomach ache](https://health.allwomenstalk.com/natural-ways-to-ease-an-upset-stomach/)
+- [baking soda itchy scalp](https://skincare.allwomenstalk.com/helpful-home-remedies-for-an-itchy-scalp/)
+- [lemon and baking soda for acne](https://beauty.allwomenstalk.com/home-remedies-for-acne/)
+- [witch hazel for cleaning piercings](https://jewelry.allwomenstalk.com/ways-to-care-for-body-piercings/)
 - [17 Tips on Creating a Home Bath Spa ...](https://allwomenstalk.com/how-to-get-rid-of-stress-with-a-home-bath-spa/)
 - [8 Things to Add to Your Bath ...](https://allwomenstalk.com/things-to-add-to-your-bath/)
 

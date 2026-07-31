@@ -48,16 +48,16 @@ Looking after your skin is important and if you are a regular swimmer it is a go
 
 ## Related Posts
 
-- [peanuts acne](https://food.allwomenstalk.com/seemingly-healthy-foods-that-can-cause-acne-and-bad-skin/)
-- [suzy shuster instagram](https://skincare.allwomenstalk.com/dietary-solutions-to-reduce-acne-in-just-two-weeks/)
-- [neostrata toning solution level 2](https://skincare.allwomenstalk.com/possible-reasons-for-adult-acne-and-how-to-treat-it/)
-- [can cocoa powder cause acne](https://food.allwomenstalk.com/foods-that-naturally-prevent-and-treat-acne/)
-- [perfect skin close up](https://food.allwomenstalk.com/ingredients-in-your-pantry-that-can-give-you-clear-skin/)
-- [cortisone cream razor bumps](https://skincare.allwomenstalk.com/honest-to-goodness-tips-on-preventing-and-treating-bikini-bumps/)
 - [tips for smooth skin](https://skincare.allwomenstalk.com/skin-care-tips-for-smooth-skin/)
-- [dry climate skin care](https://skincare.allwomenstalk.com/lifestyle-and-skin-care-tips-for-dry-climates/)
+- [neostrata toning solution level 2](https://skincare.allwomenstalk.com/possible-reasons-for-adult-acne-and-how-to-treat-it/)
+- [perfect skin close up](https://food.allwomenstalk.com/ingredients-in-your-pantry-that-can-give-you-clear-skin/)
 - [sunglasses causing acne](https://skincare.allwomenstalk.com/common-ways-you-could-be-making-acne-worse/)
 - [in which food is zinc found](https://food.allwomenstalk.com/fabulous-sources-of-vitamins-and-minerals-to-keep-your-skin-in-great-shape/)
+- [suzy shuster instagram](https://skincare.allwomenstalk.com/dietary-solutions-to-reduce-acne-in-just-two-weeks/)
+- [dry climate skin care](https://skincare.allwomenstalk.com/lifestyle-and-skin-care-tips-for-dry-climates/)
+- [can cocoa powder cause acne](https://food.allwomenstalk.com/foods-that-naturally-prevent-and-treat-acne/)
+- [cortisone cream razor bumps](https://skincare.allwomenstalk.com/honest-to-goodness-tips-on-preventing-and-treating-bikini-bumps/)
+- [peanuts acne](https://food.allwomenstalk.com/seemingly-healthy-foods-that-can-cause-acne-and-bad-skin/)
 - [8 Hair Care Tips for Greasy Hair ...](https://hair.allwomenstalk.com/8-hair-care-tips-for-greasy-hair/)
 - [8 Awesome Hair Care Products ...](https://hair.allwomenstalk.com/awesome-hair-care-products/)
 

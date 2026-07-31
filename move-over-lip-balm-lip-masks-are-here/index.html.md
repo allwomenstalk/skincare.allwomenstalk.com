@@ -114,15 +114,15 @@ Are you excited to try a lip mask? If you already have, do you have tips to shar
 
 ## Related Posts
 
-- [tarte lip exfoliant](https://skincare.allwomenstalk.com/smooth-your-lips-with-these-luxurious-treatments/)
-- [21 Bright Pink Lippies That Are Perfect for Valent...](https://makeup.allwomenstalk.com/bright-pink-lippies-that-are-perfect-for-valentines-day/)
-- [stylo bottomless java](https://makeup.allwomenstalk.com/household-items-thatll-give-you-kardashian-lips/)
-- [elf untamed lipstick](https://makeup.allwomenstalk.com/lipstick-substitutes-to-use-if-you-dont-have-kylies-lip-kit/)
 - [loreal paris color le stylo shadow amber](https://makeup.allwomenstalk.com/the-downsides-of-dark-lip-shades/)
-- [17 Sunscreens That'll Protect Your Pretty Lips ...](https://skincare.allwomenstalk.com/sunscreens-thatll-protect-your-pretty-lips/)
-- [smashbox lip gloss pink lady](https://makeup.allwomenstalk.com/pink-lippies-thatll-make-you-look-sweet-in-spring/)
-- [too faced marcia marcia marcia](https://makeup.allwomenstalk.com/new-melted-matte-lipsticks-for-spring/)
 - [How Can You Hide Those Pesky Lines around Your Lip...](https://skincare.allwomenstalk.com/how-can-you-hide-those-pesky-lines-around-your-lips/)
+- [stylo bottomless java](https://makeup.allwomenstalk.com/household-items-thatll-give-you-kardashian-lips/)
+- [smashbox lip gloss pink lady](https://makeup.allwomenstalk.com/pink-lippies-thatll-make-you-look-sweet-in-spring/)
+- [21 Bright Pink Lippies That Are Perfect for Valent...](https://makeup.allwomenstalk.com/bright-pink-lippies-that-are-perfect-for-valentines-day/)
+- [too faced marcia marcia marcia](https://makeup.allwomenstalk.com/new-melted-matte-lipsticks-for-spring/)
+- [tarte lip exfoliant](https://skincare.allwomenstalk.com/smooth-your-lips-with-these-luxurious-treatments/)
+- [17 Sunscreens That'll Protect Your Pretty Lips ...](https://skincare.allwomenstalk.com/sunscreens-thatll-protect-your-pretty-lips/)
+- [elf untamed lipstick](https://makeup.allwomenstalk.com/lipstick-substitutes-to-use-if-you-dont-have-kylies-lip-kit/)
 - [21 Lippies to Try if You're Mad about Matte ...](https://makeup.allwomenstalk.com/lippies-to-try-if-youre-mad-about-matte/)
 - [10 Best Lip Balms for Winter ...](https://allwomenstalk.com/10-best-lip-balms-for-winter/)
 - [13 Best Lip Glosses ...](https://allwomenstalk.com/13-best-lip-glosses/)

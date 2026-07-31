@@ -56,16 +56,16 @@ Do you like the smell of lavender? Which scented product is your favorite?
 
 ## Related Posts
 
-- [food masks for skin](https://skincare.allwomenstalk.com/best-foods-for-face-masks/)
-- [cheap vs expensive skin care products](https://skincare.allwomenstalk.com/reasons-not-to-waste-money-on-expensive-skincare-products/)
-- [expensive serum for face](https://skincare.allwomenstalk.com/expensive-face-serums-treatments-that-are-totally-worth-it/)
 - [indian healing clay whole foods](https://skincare.allwomenstalk.com/reasons-to-use-bentonite-clay-for-beautiful-skin/)
-- [fruity skincare](https://skincare.allwomenstalk.com/delicious-fruity-skincare-products-to-make-you-happy/)
-- [shea butter vitamins](https://skincare.allwomenstalk.com/reasons-to-use-shea-butter-for-your-skin/)
-- [natural skin exfoliants](https://skincare.allwomenstalk.com/kinds-of-natural-exfoliants-for-your-skin/)
-- [best cleansing powder](https://skincare.allwomenstalk.com/beautifying-facial-cleansing-powders-you-cant-pass-up/)
+- [expensive serum for face](https://skincare.allwomenstalk.com/expensive-face-serums-treatments-that-are-totally-worth-it/)
+- [cheap vs expensive skin care products](https://skincare.allwomenstalk.com/reasons-not-to-waste-money-on-expensive-skincare-products/)
 - [best shaving cream for women's hair](https://skincare.allwomenstalk.com/womens-shaving-cream-brands-for-your-smoothest-shave-ever/)
+- [best cleansing powder](https://skincare.allwomenstalk.com/beautifying-facial-cleansing-powders-you-cant-pass-up/)
 - [boscia konjac cleansing sponge](https://skincare.allwomenstalk.com/cool-and-unique-facial-cleansing-tools/)
+- [fruity skincare](https://skincare.allwomenstalk.com/delicious-fruity-skincare-products-to-make-you-happy/)
+- [food masks for skin](https://skincare.allwomenstalk.com/best-foods-for-face-masks/)
+- [natural skin exfoliants](https://skincare.allwomenstalk.com/kinds-of-natural-exfoliants-for-your-skin/)
+- [shea butter vitamins](https://skincare.allwomenstalk.com/reasons-to-use-shea-butter-for-your-skin/)
 - [7 New Beauty Products to Treat Yourself to ...](https://allwomenstalk.com/7-new-beauty-products-to-treat-yourself-to/)
 - [7 Fabulous L'Occitane Products ...](https://allwomenstalk.com/7-fabulous-products-from-loccitane-com/)
 

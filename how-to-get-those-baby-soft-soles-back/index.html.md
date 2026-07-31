@@ -42,16 +42,16 @@ Ladies, no sandals are going to look good on feet that are dry and flaky, so don
 
 ## Related Posts
 
-- [Don't Forget These Fitness Rules when You Get Preg...](https://parenting.allwomenstalk.com/dont-forget-these-fitness-rules-when-you-get-pregnant/)
+- [What Should Mothers Know about Breastfeeding?](https://parenting.allwomenstalk.com/what-should-mothers-know-about-breastfeeding/)
+- [7️⃣ Ways New Moms Can Get Their Looks Back ...](https://parenting.allwomenstalk.com/ways-to-get-your-looks-back-as-a-new-mom/)
+- [Every Mother Should Put These Things on Her to-do ...](https://parenting.allwomenstalk.com/every-mother-should-put-these-things-on-her-to-do-list/)
 - [How Can You Tell if You're Actually Pregnant?](https://parenting.allwomenstalk.com/how-can-you-tell-if-youre-actually-pregnant/)
 - [heartburn during 3rd trimester](https://parenting.allwomenstalk.com/life-saving-infographics-for-moms-to-be/)
+- [Heart-Warming 🤗 Tips to Help Mamas-to-Be Beat the...](https://parenting.allwomenstalk.com/how-to-beat-your-pregnancy-blues/)
 - [Here's How to Bond with Your Baby before It's Even...](https://parenting.allwomenstalk.com/heres-how-to-bond-with-your-baby-before-its-even-born/)
 - [7 Pregnancy Woes That You Can Turn around ...](https://parenting.allwomenstalk.com/pregnancy-woes-that-you-can-turn-around/)
-- [What Should Mothers Know about Breastfeeding?](https://parenting.allwomenstalk.com/what-should-mothers-know-about-breastfeeding/)
-- [Every Mother Should Put These Things on Her to-do ...](https://parenting.allwomenstalk.com/every-mother-should-put-these-things-on-her-to-do-list/)
-- [Heart-Warming 🤗 Tips to Help Mamas-to-Be Beat the...](https://parenting.allwomenstalk.com/how-to-beat-your-pregnancy-blues/)
-- [7️⃣ Ways New Moms Can Get Their Looks Back ...](https://parenting.allwomenstalk.com/ways-to-get-your-looks-back-as-a-new-mom/)
 - [These Pictures Will Make You Want to Become a Pare...](https://parenting.allwomenstalk.com/these-pictures-will-make-you-want-to-become-a-parent/)
+- [Don't Forget These Fitness Rules when You Get Preg...](https://parenting.allwomenstalk.com/dont-forget-these-fitness-rules-when-you-get-pregnant/)
 - [Feet Care Tips ...](https://allwomenstalk.com/feet-care-tips/)
 - [Pedicure Tips ...](https://allwomenstalk.com/pedicure-tips/)
 

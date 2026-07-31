@@ -137,14 +137,14 @@ Which one was most helpful for you?
 
 - [natural makeup teenager](https://skincare.allwomenstalk.com/copy-these-teen-skincare-tips-to-look-like-a-ten/)
 - [nibble earlobe](https://love.allwomenstalk.com/spots-on-his-body-you-shouldnt-ignore/)
-- [can deodorant prevent chafing](https://skincare.allwomenstalk.com/how-to-stop-your-skin-from-chafing/)
-- [what habits cause acne](https://skincare.allwomenstalk.com/daily-habits-that-make-you-more-likely-to-develop-acne/)
-- [bas skin](https://skincare.allwomenstalk.com/whats-the-cause-behind-your-bad-skin-days/)
 - [dior primer price](https://skincare.allwomenstalk.com/primer-tricks-thatll-make-your-skin-sexier/)
+- [can deodorant prevent chafing](https://skincare.allwomenstalk.com/how-to-stop-your-skin-from-chafing/)
 - [chinese eyes gif](https://skincare.allwomenstalk.com/tips-for-taking-care-of-the-delicate-skin-around-your-eyes/)
 - [how to look fresh in the morning](https://skincare.allwomenstalk.com/ways-to-wake-up-with-glowing-skin/)
-- [how to get flawless skin](https://skincare.allwomenstalk.com/how-to-get-flawless-skin-on-a-college-girls-budget/)
 - [fassure](https://skincare.allwomenstalk.com/the-secret-to-getting-rid-of-acne-once-and-for-all/)
+- [how to get flawless skin](https://skincare.allwomenstalk.com/how-to-get-flawless-skin-on-a-college-girls-budget/)
+- [what habits cause acne](https://skincare.allwomenstalk.com/daily-habits-that-make-you-more-likely-to-develop-acne/)
+- [bas skin](https://skincare.allwomenstalk.com/whats-the-cause-behind-your-bad-skin-days/)
 - [8 Essential Skin Care Tips to Help Acne Prone Skin...](https://skincare.allwomenstalk.com/essential-skin-care-tips-to-help-acne-prone-skin/)
 - [Acne Advice: Blemish Free Skin ...](https://allwomenstalk.com/acne-advice-blemish-free-skin/)
 

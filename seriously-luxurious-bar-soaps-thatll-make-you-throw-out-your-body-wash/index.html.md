@@ -68,16 +68,16 @@ Even if you weren’t a fan of bar soap before, I think these nine decadent bar 
 
 ## Related Posts
 
-- [yankee candle beads](https://lifestyle.allwomenstalk.com/scent-sational-candle-fragrances-from-yankee-candle-that-will-make-your-home-smell-inviting/)
-- [book on perfume](https://books.allwomenstalk.com/beautiful-books-about-fragrances/)
-- [how to choose a perfume that suits you](https://perfumes.allwomenstalk.com/tips-for-choosing-a-perfume-thats-right-for-you/)
-- [coach floral rollerball](https://perfumes.allwomenstalk.com/fragrant-rollerball-perfumes-you-should-try/)
-- [virtual perfume](https://apps.allwomenstalk.com/fragrant-apps-for-perfume-lovers/)
-- [zen scented candles](https://lifestyle.allwomenstalk.com/find-your-zen-with-falls-best-scented-candles/)
-- [amazing scents](https://perfumes.allwomenstalk.com/amazing-scents-that-most-women-cant-resist/)
-- [best body lotion scents](https://skincare.allwomenstalk.com/sensuous-fall-inspired-scented-lotions/)
 - [perfume crystal bottle](https://perfumes.allwomenstalk.com/gorgeous-vintage-perfume-bottles-youll-lust-after/)
+- [book on perfume](https://books.allwomenstalk.com/beautiful-books-about-fragrances/)
 - [can i use essential oils as perfume](https://perfumes.allwomenstalk.com/essential-oils-that-you-can-use-as-perfume/)
+- [amazing scents](https://perfumes.allwomenstalk.com/amazing-scents-that-most-women-cant-resist/)
+- [coach floral rollerball](https://perfumes.allwomenstalk.com/fragrant-rollerball-perfumes-you-should-try/)
+- [zen scented candles](https://lifestyle.allwomenstalk.com/find-your-zen-with-falls-best-scented-candles/)
+- [best body lotion scents](https://skincare.allwomenstalk.com/sensuous-fall-inspired-scented-lotions/)
+- [virtual perfume](https://apps.allwomenstalk.com/fragrant-apps-for-perfume-lovers/)
+- [yankee candle beads](https://lifestyle.allwomenstalk.com/scent-sational-candle-fragrances-from-yankee-candle-that-will-make-your-home-smell-inviting/)
+- [how to choose a perfume that suits you](https://perfumes.allwomenstalk.com/tips-for-choosing-a-perfume-thats-right-for-you/)
 - [10 Amazing LUSH Products for Your Bath ...](https://skincare.allwomenstalk.com/10-amazing-lush-products-for-your-bath/)
 - [8 Luxurious Body Lotions ...](https://skincare.allwomenstalk.com/8-luxurious-body-lotions/)
 

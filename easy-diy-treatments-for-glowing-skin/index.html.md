@@ -48,16 +48,16 @@ Mix all ingredients in a pot and it's ready! Dip a clean, wet toothbrush into th
 
 ## Related Posts
 
-- [Brilliant Tips to Give You Gorgeous Skin ...](https://skincare.allwomenstalk.com/tips-for-gorgeous-skin/)
 - [steps to getting clear skin](https://skincare.allwomenstalk.com/simple-steps-to-clearer-skin/)
-- [edith aiko](https://skincare.allwomenstalk.com/ways-to-deal-with-sensitive-skin/)
+- [nutrients needed for skin](https://beauty.allwomenstalk.com/the-most-important-nutrients-for-healthy-skin/)
+- [wrinkled things](https://skincare.allwomenstalk.com/things-you-should-know-about-wrinkles/)
+- [sun safety tips](https://skincare.allwomenstalk.com/tips-for-staying-safe-in-the-sun/)
+- [glycerin for cracked heels](https://skincare.allwomenstalk.com/tips-for-getting-rid-of-cracked-heels-and-dry-skin/)
+- [how to have perfect skin](https://skincare.allwomenstalk.com/simple-tips-for-perfect-skin/)
 - [best underarm exfoliator](https://skincare.allwomenstalk.com/ways-to-remove-dark-underarm-skin/)
 - [The Nitty Gritty on Wrinkles All Women Should Know...](https://skincare.allwomenstalk.com/what-every-woman-should-know-about-wrinkles/)
-- [glycerin for cracked heels](https://skincare.allwomenstalk.com/tips-for-getting-rid-of-cracked-heels-and-dry-skin/)
-- [sun safety tips](https://skincare.allwomenstalk.com/tips-for-staying-safe-in-the-sun/)
-- [wrinkled things](https://skincare.allwomenstalk.com/things-you-should-know-about-wrinkles/)
-- [nutrients needed for skin](https://beauty.allwomenstalk.com/the-most-important-nutrients-for-healthy-skin/)
-- [how to have perfect skin](https://skincare.allwomenstalk.com/simple-tips-for-perfect-skin/)
+- [edith aiko](https://skincare.allwomenstalk.com/ways-to-deal-with-sensitive-skin/)
+- [Brilliant Tips to Give You Gorgeous Skin ...](https://skincare.allwomenstalk.com/tips-for-gorgeous-skin/)
 - [9 Homemade Skincare Treatments ...](https://allwomenstalk.com/9-homemade-skincare-treatments/)
 - [7 Steps to Glowing Skin ...](https://allwomenstalk.com/7-steps-to-glowing-skin/)
 

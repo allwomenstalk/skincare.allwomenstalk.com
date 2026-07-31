@@ -118,16 +118,16 @@ This article was written in collaboration with editor Vanessa Salles.
 
 ## Related Posts
 
-- [skin brightening foundation](https://makeup.allwomenstalk.com/foundations-for-sensitive-and-dry-skin/)
-- [dr bronner's 18 uses](https://skincare.allwomenstalk.com/handy-dandy-uses-for-dr-bronners-soap/)
 - [what is the best anti aging eye cream](https://skincare.allwomenstalk.com/excellent-eye-creams-for-aging-skin/)
+- [mineral fusion bb cream](https://beauty.allwomenstalk.com/new-natural-beauty-products/)
 - [cosmetic for sensitive skin](https://beauty.allwomenstalk.com/super-cosmetics-brands-for-sensitive-skin/)
+- [love anousta products](https://skincare.allwomenstalk.com/most-effective-anti-aging-skin-care-products/)
+- [dr bronner's 18 uses](https://skincare.allwomenstalk.com/handy-dandy-uses-for-dr-bronners-soap/)
 - [bb vs cc cream vs foundation](https://makeup.allwomenstalk.com/differences-between-bb-cream-foundation/)
 - [peter thomas roth instant mineral powder spf 45](https://skincare.allwomenstalk.com/top-notch-sunscreens-for-your-face/)
-- [best smelling fruits](https://skincare.allwomenstalk.com/fabulous-fruit-scented-skin-care-products/)
-- [love anousta products](https://skincare.allwomenstalk.com/most-effective-anti-aging-skin-care-products/)
-- [mineral fusion bb cream](https://beauty.allwomenstalk.com/new-natural-beauty-products/)
 - [fun facial masks](https://skincare.allwomenstalk.com/fabulous-face-masks-to-try-out/)
+- [best smelling fruits](https://skincare.allwomenstalk.com/fabulous-fruit-scented-skin-care-products/)
+- [skin brightening foundation](https://makeup.allwomenstalk.com/foundations-for-sensitive-and-dry-skin/)
 - [10 Amazing LUSH Products for Your Bath ...](https://skincare.allwomenstalk.com/10-amazing-lush-products-for-your-bath/)
 - [7 Simple but Unbelievably Effective Homemade Acne ...](https://beauty.allwomenstalk.com/simple-but-unbelievably-effective-homemade-acne-cleansers/)
 

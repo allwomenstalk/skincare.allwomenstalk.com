@@ -44,16 +44,16 @@ Top Photo Credit: [Glenn E. Malone](https://www.flickr.com/photos/gemalone/14862
 
 ## Related Posts
 
+- [wedding proposal stories](https://wedding.allwomenstalk.com/falling-in-love-in-new-york-city-a-proposal-story-in-central-park/)
+- [cameron diaz alex rodriguez](https://celebs.allwomenstalk.com/a-rod-camerons-romantic-weekend/)
+- [flowers for may](https://gardening.allwomenstalk.com/may-flowers-to-celebrate/)
+- [unusual dinners](https://love.allwomenstalk.com/7-unusual-dinners-for-date-night/)
 - [love is like riding a bicycle](https://lifestyle.allwomenstalk.com/ways-to-show-off-your-love-for-bicycles/)
 - [date dinners](https://cooking.allwomenstalk.com/8-great-date-dinners/)
-- [summer night date ideas](https://love.allwomenstalk.com/romantic-ideas-for-summer-dates/)
-- [cameron diaz alex rodriguez](https://celebs.allwomenstalk.com/a-rod-camerons-romantic-weekend/)
-- [valentine day celebration ideas](https://love.allwomenstalk.com/creative-ways-to-celebrate-valentines-day/)
-- [unusual dinners](https://love.allwomenstalk.com/7-unusual-dinners-for-date-night/)
-- [flowers for may](https://gardening.allwomenstalk.com/may-flowers-to-celebrate/)
-- [romantic scenes movies](https://movies.allwomenstalk.com/most-romantic-love-scenes/)
-- [wedding proposal stories](https://wedding.allwomenstalk.com/falling-in-love-in-new-york-city-a-proposal-story-in-central-park/)
 - [5 Things Vampires May like ...](https://twilight.allwomenstalk.com/5-things-vampires-may-like/)
+- [summer night date ideas](https://love.allwomenstalk.com/romantic-ideas-for-summer-dates/)
+- [romantic scenes movies](https://movies.allwomenstalk.com/most-romantic-love-scenes/)
+- [valentine day celebration ideas](https://love.allwomenstalk.com/creative-ways-to-celebrate-valentines-day/)
 - [7 Unique Gift Ideas for Your Boyfriend ...](https://love.allwomenstalk.com/unique-gift-ideas-for-your-boyfriend/)
 - [6 Unique Gift Ideas for Your Partner ...](https://love.allwomenstalk.com/unique-gift-ideas-for-your-partner/)
 

@@ -76,15 +76,15 @@ What are your go-to blotting papers to keep shine at bay? Share your favorites i
 
 ## Related Posts
 
-- [skin brightening foundation](https://makeup.allwomenstalk.com/foundations-for-sensitive-and-dry-skin/)
-- [how to make hand mask](https://skincare.allwomenstalk.com/great-diy-masks-for-pampered-hands-and-feet/)
-- [cosmetic for sensitive skin](https://beauty.allwomenstalk.com/super-cosmetics-brands-for-sensitive-skin/)
 - [best shaving cream to prevent razor bumps](https://beauty.allwomenstalk.com/best-shaving-creams-to-try/)
-- [what is the best soap for your skin](https://skincare.allwomenstalk.com/best-soaps-for-beautiful-skin/)
-- [cc cream v bb cream](https://makeup.allwomenstalk.com/top-bb-and-cc-creams/)
-- [best drugstore body wash for dry skin](https://skincare.allwomenstalk.com/top-notch-drugstore-body-washes/)
+- [how to make hand mask](https://skincare.allwomenstalk.com/great-diy-masks-for-pampered-hands-and-feet/)
 - [essential oil beauty](https://skincare.allwomenstalk.com/excellent-essential-oils-for-beautiful-skin/)
+- [cosmetic for sensitive skin](https://beauty.allwomenstalk.com/super-cosmetics-brands-for-sensitive-skin/)
 - [best moisture cream for face in winter](https://skincare.allwomenstalk.com/best-moisturizers-for-winter/)
+- [what is the best soap for your skin](https://skincare.allwomenstalk.com/best-soaps-for-beautiful-skin/)
+- [best drugstore body wash for dry skin](https://skincare.allwomenstalk.com/top-notch-drugstore-body-washes/)
+- [skin brightening foundation](https://makeup.allwomenstalk.com/foundations-for-sensitive-and-dry-skin/)
+- [cc cream v bb cream](https://makeup.allwomenstalk.com/top-bb-and-cc-creams/)
 - [angels on bare skin](https://skincare.allwomenstalk.com/best-lush-products-for-acne/)
 - [7 Tips to Combat Oily Skin ...](https://skincare.allwomenstalk.com/7-tips-to-combat-oily-skin/)
 - [7 Best Oily Hair Masks ...](https://hair.allwomenstalk.com/best-oily-hair-masks/)

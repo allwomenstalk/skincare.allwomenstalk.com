@@ -140,16 +140,16 @@ What causes you to break out? What do you do about it?
 
 ## Related Posts
 
-- [chinese eyes gif](https://skincare.allwomenstalk.com/tips-for-taking-care-of-the-delicate-skin-around-your-eyes/)
-- [bas skin](https://skincare.allwomenstalk.com/whats-the-cause-behind-your-bad-skin-days/)
-- [can deodorant prevent chafing](https://skincare.allwomenstalk.com/how-to-stop-your-skin-from-chafing/)
-- [kale benefits for skin](https://skincare.allwomenstalk.com/how-can-you-use-kale-to-make-your-skin-more-beautiful/)
-- [best full coverage foundation for acne scars](https://makeup.allwomenstalk.com/this-is-the-best-foundation-routine-to-cover-up-acne-and-scars/)
 - [fassure](https://skincare.allwomenstalk.com/the-secret-to-getting-rid-of-acne-once-and-for-all/)
+- [best full coverage foundation for acne scars](https://makeup.allwomenstalk.com/this-is-the-best-foundation-routine-to-cover-up-acne-and-scars/)
 - [how to get flawless skin](https://skincare.allwomenstalk.com/how-to-get-flawless-skin-on-a-college-girls-budget/)
-- [shiny look makeup](https://makeup.allwomenstalk.com/ways-to-reduce-shiny-skin-all-day-long/)
+- [bas skin](https://skincare.allwomenstalk.com/whats-the-cause-behind-your-bad-skin-days/)
+- [kale benefits for skin](https://skincare.allwomenstalk.com/how-can-you-use-kale-to-make-your-skin-more-beautiful/)
 - [natural makeup teenager](https://skincare.allwomenstalk.com/copy-these-teen-skincare-tips-to-look-like-a-ten/)
+- [chinese eyes gif](https://skincare.allwomenstalk.com/tips-for-taking-care-of-the-delicate-skin-around-your-eyes/)
 - [what to do with pimples that hurt](https://skincare.allwomenstalk.com/how-to-deal-with-a-pimple-that-hurts-like-hell/)
+- [shiny look makeup](https://makeup.allwomenstalk.com/ways-to-reduce-shiny-skin-all-day-long/)
+- [can deodorant prevent chafing](https://skincare.allwomenstalk.com/how-to-stop-your-skin-from-chafing/)
 - [13 Things That Cause Acne ...](https://allwomenstalk.com/13-things-that-cause-acne/)
 - [12 Reasons Why You Can't Get Rid of Acne ...](https://allwomenstalk.com/12-reasons-why-you-cant-get-rid-of-acne/)
 

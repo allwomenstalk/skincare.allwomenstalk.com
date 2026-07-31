@@ -42,16 +42,16 @@ What skincare publications do you read? I do tons of research for my work and Iâ
 
 ## Related Posts
 
-- [selling natural products](https://beauty.allwomenstalk.com/beauty-companies-that-sell-natural-products/)
-- [homemade oil cleanser](https://beauty.allwomenstalk.com/homemade-beauty-products-for-top-to-toe-tlc/)
-- [shaving gel substitute](https://beauty.allwomenstalk.com/products-that-are-great-alternatives-to-shaving-cream/)
 - [winter green scrubs](https://skincare.allwomenstalk.com/bye-bye-winter-skin-diy-sugar-scrubs-to-try/)
-- [does one size fit all](https://skincare.allwomenstalk.com/reasons-why-skincare-isnt-one-size-fits-all/)
-- [what you need for a relaxing bath](https://beauty.allwomenstalk.com/essentials-for-a-perfect-and-relaxing-bath/)
 - [emmenice](https://skincare.allwomenstalk.com/things-to-know-about-probiotics-in-skincare/)
-- [calamine lotion manufacturer](https://diy.allwomenstalk.com/alternate-uses-for-moisturizer-to-get-the-most-from-your-money/)
 - [ingredients in face masks](https://skincare.allwomenstalk.com/ingredients-to-look-for-in-a-facial-mask/)
 - [diy baby bubble bath](https://beauty.allwomenstalk.com/you-simply-have-to-pamper-yourself-with-these-diy-bubble-bath-recipes/)
+- [calamine lotion manufacturer](https://diy.allwomenstalk.com/alternate-uses-for-moisturizer-to-get-the-most-from-your-money/)
+- [homemade oil cleanser](https://beauty.allwomenstalk.com/homemade-beauty-products-for-top-to-toe-tlc/)
+- [shaving gel substitute](https://beauty.allwomenstalk.com/products-that-are-great-alternatives-to-shaving-cream/)
+- [does one size fit all](https://skincare.allwomenstalk.com/reasons-why-skincare-isnt-one-size-fits-all/)
+- [what you need for a relaxing bath](https://beauty.allwomenstalk.com/essentials-for-a-perfect-and-relaxing-bath/)
+- [selling natural products](https://beauty.allwomenstalk.com/beauty-companies-that-sell-natural-products/)
 - [7 Younger-Looking Skin Tips You Should Know ...](https://skincare.allwomenstalk.com/younger-looking-skin-tips-you-should-know/)
 - [7 Skincare Tips for Twenty-Somethings ...](https://skincare.allwomenstalk.com/skincare-tips-for-twenty-somethings/)
 

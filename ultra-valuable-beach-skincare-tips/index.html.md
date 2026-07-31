@@ -42,16 +42,16 @@ Do you spend a lot of time on the beach during the summer? I wish I could get th
 
 ## Related Posts
 
-- [how to look paler](https://skincare.allwomenstalk.com/ways-to-perk-up-your-pale-winter-skin/)
+- [microdermabrasion for feet](https://skincare.allwomenstalk.com/things-you-should-know-about-microdermabrasion/)
 - [is a humidifier good for acne](https://skincare.allwomenstalk.com/things-to-know-about-using-a-humidifier-for-dry-skin/)
-- [lemon juice for freckles](https://skincare.allwomenstalk.com/ways-to-reduce-freckles/)
+- [how to look paler](https://skincare.allwomenstalk.com/ways-to-perk-up-your-pale-winter-skin/)
+- [how to wash your face while camping](https://skincare.allwomenstalk.com/super-easy-camping-skincare-tips-you-can-use-for-the-rest-of-the-summer/)
+- [how to avoid scratching](https://skincare.allwomenstalk.com/ways-to-keep-from-scratching-itchy-skin/)
 - [skincare tips that cost nothing](https://skincare.allwomenstalk.com/ways-to-improve-your-skin-without-spending-money/)
 - [is salt scrub good for your skin](https://skincare.allwomenstalk.com/things-to-know-about-salt-scrubs-for-your-skin/)
-- [how to avoid scratching](https://skincare.allwomenstalk.com/ways-to-keep-from-scratching-itchy-skin/)
 - [ellen marmur](https://skincare.allwomenstalk.com/celebrity-dermatologists-and-their-skincare-advice/)
-- [how to wash your face while camping](https://skincare.allwomenstalk.com/super-easy-camping-skincare-tips-you-can-use-for-the-rest-of-the-summer/)
+- [lemon juice for freckles](https://skincare.allwomenstalk.com/ways-to-reduce-freckles/)
 - [pancreas acne](https://skincare.allwomenstalk.com/plagued-by-spots-and-pimples-help-is-at-hand-with-some-useful-acne-infographics/)
-- [microdermabrasion for feet](https://skincare.allwomenstalk.com/things-you-should-know-about-microdermabrasion/)
 - [8 Beach Skincare Tips ...](https://skincare.allwomenstalk.com/beach-skincare-tips/)
 - [7 Skincare Tips for Summer ...](https://skincare.allwomenstalk.com/skincare-tips-for-summer/)
 
