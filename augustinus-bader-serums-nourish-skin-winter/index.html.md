@@ -3,7 +3,7 @@ title: "3 Must-Have Augustinus Bader Serums That Will Nourish Your Skin This Win
 description: "The Vitamin C Serum - For the Glow-Seekers; The Elixir - For Those Who Crave Renewal and Lift; The Retinol Serum - For the Texture-Refiners and Line-Reducers; Choosing the Right Serum for You; The Mind Behind the Miracle – Professor Augustinus Bader; More ..."
 url: "https://skincare.allwomenstalk.com/augustinus-bader-serums-nourish-skin-winter/"
 category: "skincare"
-last_updated: "2026-08-07"
+last_updated: "2026-08-11"
 ---
 
 # 3 Must\-Have Augustinus Bader Serums That Will Nourish Your Skin This Winter …
