@@ -3,7 +3,7 @@ title: "7 Recipes for Natural Homemade Facials ..."
 description: "Facial Mask for Oily Skin; Facial Mask for Dry Skin; Soothing Mask for Sun Damaged Skin; Facial Mask for Normal Skin; Re-energizing Cucumber Facial for All Skin Types; More ..."
 url: "https://skincare.allwomenstalk.com/7-recipes-for-natural-homemade-facials/"
 category: "skincare"
-last_updated: "2026-08-11"
+last_updated: "2026-08-19"
 ---
 
 # 7 Recipes for Natural Homemade Facials ...
@@ -16,7 +16,7 @@ Large pores and that constant greasy glow are the biggest problems people with o
 
 ## 2. Facial Mask for Dry Skin
 
-Use milk, chocolate, olive oil, ripe bananas and honey because these are the most nourishing elements out there. If you have bee wax (propolis), apply the mixture on your face and let it sit for a half an hour. If not, mix regular honey with some milk, add purred fruit of choice, apply and relax. Chocolate mask is my absolute favorite, of course, and here’s how to make it – Mix one tablespoon of cocoa powder, one tablespoon of rich, milk cream, one tablespoon of oatmeal, one tablespoon of cottage cheese and 4 tablespoons of milk. Blend the ingredients, apply this tasty paste on your face and let it sit there for about 10-15 minutes. Eat the leftovers (my favorite part) or apply them on your elbows and knees (in case you’re on a diet).
+Use milk, chocolate, olive oil, ripe bananas and honey because these are the most nourishing elements out there. For more tried-and-tested natural skincare recipes, explore the collection at [Froya Organics](https://froyaorganics.com/blogs/recipes). If you have bee wax (propolis), apply the mixture on your face and let it sit for a half an hour. If not, mix regular honey with some milk, add purred fruit of choice, apply and relax. Chocolate mask is my absolute favorite, of course, and here’s how to make it – Mix one tablespoon of cocoa powder, one tablespoon of rich, milk cream, one tablespoon of oatmeal, one tablespoon of cottage cheese and 4 tablespoons of milk. Blend the ingredients, apply this tasty paste on your face and let it sit there for about 10-15 minutes. Eat the leftovers (my favorite part) or apply them on your elbows and knees (in case you’re on a diet).
 
 ## 3. Soothing Mask for Sun Damaged Skin
 
@@ -44,15 +44,15 @@ Top Photo Credit: [BIJI KURIAN](https://web.archive.org/web/https://www.flickr.c
 
 ## Related Posts
 
-- [7 Top Adult Acne Treatments ...](https://skincare.allwomenstalk.com/top-adult-acne-treatments/)
-- [8 Ingredients for a Homemade Cleanser ...](https://skincare.allwomenstalk.com/ingredients-for-a-homemade-cleanser/)
-- [7 Lush Items by Elemental Herbology ...](https://skincare.allwomenstalk.com/lush-items-by-elemental-herbology/)
-- [8 Best Skin Care Products Ever ...](https://skincare.allwomenstalk.com/best-skin-care-products-ever/)
-- [7 Great Exfoliants for Every Skin Type ...](https://skincare.allwomenstalk.com/7-great-exfoliants-for-every-skin-type/)
-- [8 Best Moisturizers with SPF ...](https://skincare.allwomenstalk.com/best-moisturizers-with-spf/)
-- [7 Steps to a Great Home Made Exfoliator ...](https://skincare.allwomenstalk.com/steps-to-a-great-home-made-exfoliator/)
-- [types of body scrub and their ingredients](https://skincare.allwomenstalk.com/8-body-scrub-ingredients-that-work/)
 - [beautiful bar soap](https://skincare.allwomenstalk.com/beautiful-bar-soaps/)
+- [7 Great Exfoliants for Every Skin Type ...](https://skincare.allwomenstalk.com/7-great-exfoliants-for-every-skin-type/)
+- [8 Ingredients for a Homemade Cleanser ...](https://skincare.allwomenstalk.com/ingredients-for-a-homemade-cleanser/)
+- [8 Best Moisturizers with SPF ...](https://skincare.allwomenstalk.com/best-moisturizers-with-spf/)
+- [types of body scrub and their ingredients](https://skincare.allwomenstalk.com/8-body-scrub-ingredients-that-work/)
+- [7 Lush Items by Elemental Herbology ...](https://skincare.allwomenstalk.com/lush-items-by-elemental-herbology/)
+- [7 Top Adult Acne Treatments ...](https://skincare.allwomenstalk.com/top-adult-acne-treatments/)
+- [7 Steps to a Great Home Made Exfoliator ...](https://skincare.allwomenstalk.com/steps-to-a-great-home-made-exfoliator/)
+- [8 Best Skin Care Products Ever ...](https://skincare.allwomenstalk.com/best-skin-care-products-ever/)
 - [10 Amazing LUSH Products for Your Bath ...](https://skincare.allwomenstalk.com/10-amazing-lush-products-for-your-bath/)
 - [8 All-Natural Home Made Face Masks ...](https://skincare.allwomenstalk.com/8-all-natural-home-made-face-masks/)
 - [7 Homemade Revitalizing Masks ...](https://skincare.allwomenstalk.com/homemade-revitalizing-masks/)
