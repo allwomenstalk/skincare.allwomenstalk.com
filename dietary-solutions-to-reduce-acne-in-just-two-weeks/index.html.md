@@ -50,16 +50,16 @@ If you have the money, juicing is also excellent for beating acne, as are green 
 
 ## Related Posts
 
-- [things that cause aging](https://skincare.allwomenstalk.com/simple-things-that-cause-skin-aging/)
-- [can cocoa powder cause acne](https://food.allwomenstalk.com/foods-that-naturally-prevent-and-treat-acne/)
-- [remedy for scaly skin](https://skincare.allwomenstalk.com/remedies-for-scaly-skin-that-work/)
-- [how to make hands look younger](https://beauty.allwomenstalk.com/easy-ways-to-make-your-hands-look-younger/)
 - [sunglasses causing acne](https://skincare.allwomenstalk.com/common-ways-you-could-be-making-acne-worse/)
-- [exfoliation paula's choice](https://skincare.allwomenstalk.com/common-exfoliation-mistakes-you-should-avoid/)
-- [tips for smooth skin](https://skincare.allwomenstalk.com/skin-care-tips-for-smooth-skin/)
+- [remedy for scaly skin](https://skincare.allwomenstalk.com/remedies-for-scaly-skin-that-work/)
 - [perfect skin close up](https://food.allwomenstalk.com/ingredients-in-your-pantry-that-can-give-you-clear-skin/)
 - [neostrata toning solution level 2](https://skincare.allwomenstalk.com/possible-reasons-for-adult-acne-and-how-to-treat-it/)
+- [can cocoa powder cause acne](https://food.allwomenstalk.com/foods-that-naturally-prevent-and-treat-acne/)
+- [how to make hands look younger](https://beauty.allwomenstalk.com/easy-ways-to-make-your-hands-look-younger/)
+- [exfoliation paula's choice](https://skincare.allwomenstalk.com/common-exfoliation-mistakes-you-should-avoid/)
 - [in which food is zinc found](https://food.allwomenstalk.com/fabulous-sources-of-vitamins-and-minerals-to-keep-your-skin-in-great-shape/)
+- [tips for smooth skin](https://skincare.allwomenstalk.com/skin-care-tips-for-smooth-skin/)
+- [things that cause aging](https://skincare.allwomenstalk.com/simple-things-that-cause-skin-aging/)
 - [15 Top Foods to Get Rid of Acne ...](https://allwomenstalk.com/15-top-foods-to-get-rid-of-acne/)
 - [10 Best Ways to Get Rid of Acne Fast ...](https://allwomenstalk.com/10-best-ways-to-get-rid-of-acne-fast/)
 

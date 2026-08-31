@@ -86,16 +86,16 @@ We all need a luxurious lip product to keep our lips looking lovely. Which of th
 
 ## Related Posts
 
-- [too faced marcia marcia marcia](https://makeup.allwomenstalk.com/new-melted-matte-lipsticks-for-spring/)
-- [Popular Lipsticks of 2017 You Need ASAP if You're ...](https://makeup.allwomenstalk.com/popular-lipsticks-of-you-need-asap-if-youre-a-makeup-addict/)
+- [elf untamed lipstick](https://makeup.allwomenstalk.com/lipstick-substitutes-to-use-if-you-dont-have-kylies-lip-kit/)
 - [21 Lippies to Try if You're Mad about Matte ...](https://makeup.allwomenstalk.com/lippies-to-try-if-youre-mad-about-matte/)
 - [smashbox lip gloss pink lady](https://makeup.allwomenstalk.com/pink-lippies-thatll-make-you-look-sweet-in-spring/)
+- [too faced marcia marcia marcia](https://makeup.allwomenstalk.com/new-melted-matte-lipsticks-for-spring/)
 - [christian louboutin pink loubiminette 105s lipstic...](https://makeup.allwomenstalk.com/be-daring-and-try-these-bold-lipsticks-today/)
-- [elf untamed lipstick](https://makeup.allwomenstalk.com/lipstick-substitutes-to-use-if-you-dont-have-kylies-lip-kit/)
-- [loreal paris color le stylo shadow amber](https://makeup.allwomenstalk.com/the-downsides-of-dark-lip-shades/)
-- [17 Sunscreens That'll Protect Your Pretty Lips ...](https://skincare.allwomenstalk.com/sunscreens-thatll-protect-your-pretty-lips/)
-- [The Ultimate Guide to the Best Mascaras for All Yo...](https://makeup.allwomenstalk.com/the-ultimate-guide-to-the-best-mascaras-for-all-your-lash-needs/)
 - [estee edit mattified lipstick swatches](https://makeup.allwomenstalk.com/hottest-fall-lipsticks-already-hitting-the-shelves/)
+- [The Ultimate Guide to the Best Mascaras for All Yo...](https://makeup.allwomenstalk.com/the-ultimate-guide-to-the-best-mascaras-for-all-your-lash-needs/)
+- [17 Sunscreens That'll Protect Your Pretty Lips ...](https://skincare.allwomenstalk.com/sunscreens-thatll-protect-your-pretty-lips/)
+- [Popular Lipsticks of 2017 You Need ASAP if You're ...](https://makeup.allwomenstalk.com/popular-lipsticks-of-you-need-asap-if-youre-a-makeup-addict/)
+- [loreal paris color le stylo shadow amber](https://makeup.allwomenstalk.com/the-downsides-of-dark-lip-shades/)
 - [9 of My Favorite Lip Products ...](https://allwomenstalk.com/9-of-my-favorite-lip-products/)
 - [9 of My Favorite Lip Products ...](https://allwomenstalk.com/9-of-my-favorite-lip-products-2/)
 

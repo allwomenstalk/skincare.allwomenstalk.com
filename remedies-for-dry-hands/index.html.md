@@ -42,16 +42,16 @@ There are plenty of different things that can lead to dry hands. These are just 
 
 ## Related Posts
 
-- [baking soda itchy scalp](https://skincare.allwomenstalk.com/helpful-home-remedies-for-an-itchy-scalp/)
-- [pregnant women candle](https://parenting.allwomenstalk.com/remedies-for-morning-sickness/)
-- [burnt toast stomach ache](https://health.allwomenstalk.com/natural-ways-to-ease-an-upset-stomach/)
-- [ideas to drink more water](https://health.allwomenstalk.com/ways-to-drink-more-water/)
-- [how to deal with a bad tattoo](https://beauty.allwomenstalk.com/ways-to-get-rid-of-a-bad-tattoo/)
-- [witch hazel for cleaning piercings](https://jewelry.allwomenstalk.com/ways-to-care-for-body-piercings/)
-- [bath salt blends](https://diy.allwomenstalk.com/bath-salts-to-make-yourself/)
-- [what can make your teeth whiter](https://beauty.allwomenstalk.com/natural-ways-to-whiten-your-teeth/)
-- [lemon and baking soda for acne](https://beauty.allwomenstalk.com/home-remedies-for-acne/)
 - [vaseline eyeshadow](https://beauty.allwomenstalk.com/uses-of-vaseline/)
+- [how to deal with a bad tattoo](https://beauty.allwomenstalk.com/ways-to-get-rid-of-a-bad-tattoo/)
+- [what can make your teeth whiter](https://beauty.allwomenstalk.com/natural-ways-to-whiten-your-teeth/)
+- [bath salt blends](https://diy.allwomenstalk.com/bath-salts-to-make-yourself/)
+- [witch hazel for cleaning piercings](https://jewelry.allwomenstalk.com/ways-to-care-for-body-piercings/)
+- [baking soda itchy scalp](https://skincare.allwomenstalk.com/helpful-home-remedies-for-an-itchy-scalp/)
+- [lemon and baking soda for acne](https://beauty.allwomenstalk.com/home-remedies-for-acne/)
+- [ideas to drink more water](https://health.allwomenstalk.com/ways-to-drink-more-water/)
+- [burnt toast stomach ache](https://health.allwomenstalk.com/natural-ways-to-ease-an-upset-stomach/)
+- [pregnant women candle](https://parenting.allwomenstalk.com/remedies-for-morning-sickness/)
 - [7 Ways to Deal with Dry Lips ...](https://skincare.allwomenstalk.com/ways-to-deal-with-dry-lips/)
 - [7 Ingredients for a Home Made Moisturiser ...](https://skincare.allwomenstalk.com/ingredients-for-a-home-made-moisturiser/)
 

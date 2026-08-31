@@ -86,16 +86,16 @@ If you can use fresh aloe vera gel, so much the better, but you can buy it onlin
 
 ## Related Posts
 
-- [foot lotion for dry skin](https://skincare.allwomenstalk.com/whats-the-best-brand-of-foot-cream-on-the-market/)
-- [best diy face mask](https://diy.allwomenstalk.com/these-smell-so-good-diy-face-mask-recipes-that-are-easy-to-make/)
 - [paris color stylo infinite sky](https://beauty.allwomenstalk.com/heres-how-you-can-get-gorgeous-skin-by-simply-using-rose-water/)
-- [expensive eye cream](https://skincare.allwomenstalk.com/eye-creams-that-give-you-the-most-bang-for-your-buck/)
+- [which fruit mask is good for skin](https://skincare.allwomenstalk.com/clear-skin-hacks-the-best-homemade-fruit-masks-you-must-start-doing-now/)
+- [foot lotion for dry skin](https://skincare.allwomenstalk.com/whats-the-best-brand-of-foot-cream-on-the-market/)
 - [coppertone sensitive skin](https://skincare.allwomenstalk.com/breaking-out-from-sunscreen-try-these-amazing-sunscreens-for-sensitive-skin-instead/)
+- [products made out of coconut](https://diy.allwomenstalk.com/coconut-is-a-magical-beauty-ingredient-try-these-homemade-coconut-products/)
+- [best diy face mask](https://diy.allwomenstalk.com/these-smell-so-good-diy-face-mask-recipes-that-are-easy-to-make/)
 - [shower before or after skincare](https://skincare.allwomenstalk.com/the-perfect-post-shower-skin-routine-you-should-be-following/)
 - [acne cream ingredients](https://skincare.allwomenstalk.com/what-ingredients-do-you-need-in-an-acne-cream/)
+- [expensive eye cream](https://skincare.allwomenstalk.com/eye-creams-that-give-you-the-most-bang-for-your-buck/)
 - [diy face mists](https://beauty.allwomenstalk.com/diy-body-and-face-mists-your-skin-will-love/)
-- [which fruit mask is good for skin](https://skincare.allwomenstalk.com/clear-skin-hacks-the-best-homemade-fruit-masks-you-must-start-doing-now/)
-- [products made out of coconut](https://diy.allwomenstalk.com/coconut-is-a-magical-beauty-ingredient-try-these-homemade-coconut-products/)
 - [7 Recipes for Natural Homemade Facials ...](https://skincare.allwomenstalk.com/7-recipes-for-natural-homemade-facials/)
 - [9 Homemade Skincare Treatments ...](https://allwomenstalk.com/9-homemade-skincare-treatments/)
 

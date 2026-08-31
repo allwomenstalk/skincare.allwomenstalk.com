@@ -52,16 +52,16 @@ Top Image Source: [pratiknaik.tumblr.com](https://pratiknaik.tumblr.com/)
 
 ## Related Posts
 
+- [7 Clues You Might Be a Hypochondriac ...](https://health.allwomenstalk.com/clues-you-might-be-a-hypochondriac/)
+- [signs of clingy boyfriend](https://love.allwomenstalk.com/signs-you-might-be-too-clingy/)
 - [15 Signs You Might Have Diabetes ...](https://health.allwomenstalk.com/signs-you-might-have-diabetes/)
 - [7 Signs of Prescription Drug Abuse ...](https://health.allwomenstalk.com/signs-of-prescription-drug-abuse/)
-- [signs of clingy boyfriend](https://love.allwomenstalk.com/signs-you-might-be-too-clingy/)
+- [signs your body is in starvation mode](https://diet.allwomenstalk.com/signs-that-your-diet-has-gone-too-far/)
+- [lip balm addiction](https://skincare.allwomenstalk.com/signs-youre-addicted-to-lip-balm/)
 - [7 Sure Signs You're Addicted to Technology ...](https://lifestyle.allwomenstalk.com/sure-signs-youre-addicted-to-technology/)
 - [10 Critical Warning Signs of an Eating Disorder .....](https://health.allwomenstalk.com/critical-warning-signs-of-an-eating-disorder/)
-- [7 Clues You Might Be a Hypochondriac ...](https://health.allwomenstalk.com/clues-you-might-be-a-hypochondriac/)
 - [site:health.allwomenstalk.com](https://health.allwomenstalk.com/telling-signs-of-anxiety/)
-- [lip balm addiction](https://skincare.allwomenstalk.com/signs-youre-addicted-to-lip-balm/)
 - [7 Signs You're Obsessed with Dieting ...](https://diet.allwomenstalk.com/signs-youre-obsessed-with-dieting/)
-- [signs your body is in starvation mode](https://diet.allwomenstalk.com/signs-that-your-diet-has-gone-too-far/)
 - [7 Signs That You Need to Find a New Salon ...](https://hair.allwomenstalk.com/signs-that-you-need-to-find-a-new-salon/)
 - [7 Signs That Your Skin Needs More Care ...](https://allwomenstalk.com/7-signs-that-your-skin-needs-more-care/)
 

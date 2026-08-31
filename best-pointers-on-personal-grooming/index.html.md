@@ -54,15 +54,15 @@ There’s a lot that goes into personal grooming so don’t get overwhelmed or d
 
 ## Related Posts
 
-- [best sleeping position for beauty](https://beauty.allwomenstalk.com/best-beauty-products-to-use-while-you-sleep/)
-- [weirdest hollywood beauty treatments](https://celebs.allwomenstalk.com/most-bizarre-beauty-treatments-that-celebrities-love/)
-- [natural beauty vs fake beauty](https://beauty.allwomenstalk.com/fabulous-fake-beauty-tricks/)
-- [smokey eye kate moss makeup](https://beauty.allwomenstalk.com/great-beauty-lessons-kate-moss-taught-me/)
-- [baking soda beauty uses](https://beauty.allwomenstalk.com/uses-of-baking-soda-to-incorporate-in-your-beauty-routine/)
-- [loreal color riche stylo smoky shadow icon](https://beauty.allwomenstalk.com/best-beauty-icons-to-get-beauty-inspiration-from/)
 - [the history of makeup](https://makeup.allwomenstalk.com/facts-about-the-history-of-cosmetics/)
 - [beauty and confidence](https://beauty.allwomenstalk.com/excellent-beauty-tips-you-can-try-to-boost-your-self-confidence-in-24-hours/)
+- [weirdest hollywood beauty treatments](https://celebs.allwomenstalk.com/most-bizarre-beauty-treatments-that-celebrities-love/)
+- [loreal color riche stylo smoky shadow icon](https://beauty.allwomenstalk.com/best-beauty-icons-to-get-beauty-inspiration-from/)
+- [natural beauty vs fake beauty](https://beauty.allwomenstalk.com/fabulous-fake-beauty-tricks/)
+- [smokey eye kate moss makeup](https://beauty.allwomenstalk.com/great-beauty-lessons-kate-moss-taught-me/)
 - [beauty habits](https://beauty.allwomenstalk.com/popular-beauty-habits-you-should-be-trying/)
+- [best sleeping position for beauty](https://beauty.allwomenstalk.com/best-beauty-products-to-use-while-you-sleep/)
+- [baking soda beauty uses](https://beauty.allwomenstalk.com/uses-of-baking-soda-to-incorporate-in-your-beauty-routine/)
 - [toebesity](https://beauty.allwomenstalk.com/controversial-cosmetic-procedures-that-will-boggle-your-mind/)
 - [10 Wedding Etiquette Tips You Might Not Be Aware o...](https://wedding.allwomenstalk.com/wedding-etiquette-tips-you-might-not-be-aware-of/)
 - [10 Best Relationship Advice Blogs ...](https://lifestyle.allwomenstalk.com/best-relationship-advice-blogs/)

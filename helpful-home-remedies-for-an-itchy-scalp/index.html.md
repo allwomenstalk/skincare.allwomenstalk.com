@@ -46,16 +46,16 @@ There are many ways you can treat an itchy scalp and now we know that we don’t
 
 ## Related Posts
 
-- [what can make your teeth whiter](https://beauty.allwomenstalk.com/natural-ways-to-whiten-your-teeth/)
-- [does vinegar help sunburn](https://skincare.allwomenstalk.com/soothing-and-natural-ways-to-relieve-sunburn/)
-- [whole foods rescue remedy](https://health.allwomenstalk.com/bach-flower-remedies-groups-and-remedy-options/)
-- [seaweed baths for weight loss](https://health.allwomenstalk.com/incredible-natural-ways-to-fight-cellulite/)
 - [ideas to drink more water](https://health.allwomenstalk.com/ways-to-drink-more-water/)
+- [ocean potion with lidocaine](https://skincare.allwomenstalk.com/sure-fire-ways-to-deal-with-sunburn/)
+- [what can make your teeth whiter](https://beauty.allwomenstalk.com/natural-ways-to-whiten-your-teeth/)
+- [seaweed baths for weight loss](https://health.allwomenstalk.com/incredible-natural-ways-to-fight-cellulite/)
+- [whole foods rescue remedy](https://health.allwomenstalk.com/bach-flower-remedies-groups-and-remedy-options/)
+- [pregnant women candle](https://parenting.allwomenstalk.com/remedies-for-morning-sickness/)
 - [lemon and baking soda for acne](https://beauty.allwomenstalk.com/home-remedies-for-acne/)
 - [herbs for yeast overgrowth](https://health.allwomenstalk.com/magical-herbs-to-fight-yeast-in-the-body/)
 - [how to deal with a bad tattoo](https://beauty.allwomenstalk.com/ways-to-get-rid-of-a-bad-tattoo/)
-- [ocean potion with lidocaine](https://skincare.allwomenstalk.com/sure-fire-ways-to-deal-with-sunburn/)
-- [pregnant women candle](https://parenting.allwomenstalk.com/remedies-for-morning-sickness/)
+- [does vinegar help sunburn](https://skincare.allwomenstalk.com/soothing-and-natural-ways-to-relieve-sunburn/)
 - [8 Remedies to Fight Dandruff ...](https://hair.allwomenstalk.com/8-remedies-to-fight-dandruff/)
 - [7 Ways to Remedy a Dry Scalp ...](https://hair.allwomenstalk.com/ways-to-remedy-a-dry-scalp/)
 

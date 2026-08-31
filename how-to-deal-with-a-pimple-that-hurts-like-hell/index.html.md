@@ -42,16 +42,16 @@ Have you ever had a painful pimple? What did you do about it?
 
 ## Related Posts
 
-- [ways to brighten skin](https://skincare.allwomenstalk.com/how-to-brighten-your-skin-in-two-weeks-flat/)
-- [cover stretch marks with makeup](https://skincare.allwomenstalk.com/ways-to-mask-your-stretch-marks-or-get-rid-of-them-altogether/)
 - [shiny look makeup](https://makeup.allwomenstalk.com/ways-to-reduce-shiny-skin-all-day-long/)
-- [girls with clear skin](https://skincare.allwomenstalk.com/dietary-changes-thatll-clear-your-acne-right-up/)
-- [does vasaline make your eyelashes grow](https://skincare.allwomenstalk.com/healthy-things-to-put-on-your-face-before-bed/)
-- [why is my acne acting up](https://skincare.allwomenstalk.com/sneaky-reasons-your-acne-is-acting-up/)
-- [kale benefits for skin](https://skincare.allwomenstalk.com/how-can-you-use-kale-to-make-your-skin-more-beautiful/)
-- [everygirl skincare](https://skincare.allwomenstalk.com/this-is-what-every-girl-with-dry-skin-needs-to-know/)
-- [chamomile tea bags on eyes](https://skincare.allwomenstalk.com/treat-your-fine-lines-and-crows-feet-with-these-anti-wrinkle-eye-masks/)
 - [girls with clear skin](https://skincare.allwomenstalk.com/hacks-for-to-get-clear-skin-for-girls-struggling-with-acne/)
+- [cover stretch marks with makeup](https://skincare.allwomenstalk.com/ways-to-mask-your-stretch-marks-or-get-rid-of-them-altogether/)
+- [ways to brighten skin](https://skincare.allwomenstalk.com/how-to-brighten-your-skin-in-two-weeks-flat/)
+- [does vasaline make your eyelashes grow](https://skincare.allwomenstalk.com/healthy-things-to-put-on-your-face-before-bed/)
+- [everygirl skincare](https://skincare.allwomenstalk.com/this-is-what-every-girl-with-dry-skin-needs-to-know/)
+- [girls with clear skin](https://skincare.allwomenstalk.com/dietary-changes-thatll-clear-your-acne-right-up/)
+- [kale benefits for skin](https://skincare.allwomenstalk.com/how-can-you-use-kale-to-make-your-skin-more-beautiful/)
+- [why is my acne acting up](https://skincare.allwomenstalk.com/sneaky-reasons-your-acne-is-acting-up/)
+- [chamomile tea bags on eyes](https://skincare.allwomenstalk.com/treat-your-fine-lines-and-crows-feet-with-these-anti-wrinkle-eye-masks/)
 - [How to Free Yourself from Breakouts Naturally ...](https://lifestyle.allwomenstalk.com/how-to-free-yourself-from-breakouts-naturally/)
 - [Get Rid of Adult Acne ...](https://allwomenstalk.com/get-rid-of-adult-acne/)
 

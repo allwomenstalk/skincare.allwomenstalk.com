@@ -42,16 +42,16 @@ Aren’t you excited for sandal season? What does your favorite pair look like? 
 
 ## Related Posts
 
-- [Most Nutritious Foods for Healthy Nails ...](https://nails.allwomenstalk.com/most-nutritious-foods-for-healthy-nails/)
-- [vitamins for strong nails](https://nails.allwomenstalk.com/take-these-vitamins-and-minerals-for-stronger-nails/)
-- [7 Tips for Getting Water Marbled Nail Art Just Rig...](https://nails.allwomenstalk.com/tips-for-getting-water-marbled-nail-art-just-right/)
-- [how to look after cuticles](https://nails.allwomenstalk.com/how-to-look-after-your-cuticles/)
 - [how to make your manicure last longer](https://nails.allwomenstalk.com/tricks-to-make-your-manicure-last-at-least-a-week/)
 - [paris riche le stylo silver couture](https://nails.allwomenstalk.com/the-fastest-easiest-way-to-color-your-nails/)
-- [7 Things Your Fingernails Are Telling You about Yo...](https://health.allwomenstalk.com/things-your-fingernails-are-telling-you-about-your-health/)
-- [8 Most Common Reasons Why 🤔 Your Nail Polish Does...](https://nails.allwomenstalk.com/why-your-nail-polish-doesnt-last-long/)
+- [vitamins for strong nails](https://nails.allwomenstalk.com/take-these-vitamins-and-minerals-for-stronger-nails/)
 - [Here's How to Keep Your Nails in Perfect Condition...](https://nails.allwomenstalk.com/heres-how-to-keep-your-nails-in-perfect-condition/)
+- [8 Most Common Reasons Why 🤔 Your Nail Polish Does...](https://nails.allwomenstalk.com/why-your-nail-polish-doesnt-last-long/)
+- [7 Tips for Getting Water Marbled Nail Art Just Rig...](https://nails.allwomenstalk.com/tips-for-getting-water-marbled-nail-art-just-right/)
+- [7 Things Your Fingernails Are Telling You about Yo...](https://health.allwomenstalk.com/things-your-fingernails-are-telling-you-about-your-health/)
 - [loreal paris le stylo smoky azure](https://nails.allwomenstalk.com/the-product-thatll-make-painting-your-nails-easier-than-ever/)
+- [how to look after cuticles](https://nails.allwomenstalk.com/how-to-look-after-your-cuticles/)
+- [Most Nutritious Foods for Healthy Nails ...](https://nails.allwomenstalk.com/most-nutritious-foods-for-healthy-nails/)
 - [7 Ways to Get Your Skin Ready for Spring ...](https://skincare.allwomenstalk.com/7-ways-to-get-your-skin-ready-for-spring/)
 - [7 Skincare Tips for Summer Legs ...](https://fashion.allwomenstalk.com/skincare-tips-for-summer-legs/)
 

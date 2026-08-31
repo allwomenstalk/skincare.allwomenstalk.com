@@ -45,15 +45,15 @@ Top Image Source: [jamiey.com](https://jamiey.com/badass-bubble-gum-bride-tattoo
 ## Related Posts
 
 - [my freckled beauty](https://skincare.allwomenstalk.com/fun-facts-about-girls-with-freckles/)
-- [things about michigan](https://travel.allwomenstalk.com/cool-facts-about-michigan-you-probably-dont-know/)
-- [unique/interesting facts about thanksgiving](https://allwomenstalk.com/7-facts-on-thanksgiving/)
 - [american indian custom](https://travel.allwomenstalk.com/fascinating-native-american-customs/)
+- [what is the flattest continent](https://travel.allwomenstalk.com/geographical-facts-of-australia/)
+- [do pearls hurt oysters](https://jewelry.allwomenstalk.com/amazing-facts-about-pearls/)
+- [gouffre mirolda](https://travel.allwomenstalk.com/geographical-facts-about-europe/)
 - [grace kelly facts](https://movies.allwomenstalk.com/interesting-facts-about-grace-kelly/)
 - [important dates in the united states](https://lifestyle.allwomenstalk.com/key-dates-in-history-every-american-should-know-part-to/)
+- [things about michigan](https://travel.allwomenstalk.com/cool-facts-about-michigan-you-probably-dont-know/)
+- [unique/interesting facts about thanksgiving](https://allwomenstalk.com/7-facts-on-thanksgiving/)
 - [about the uk](https://travel.allwomenstalk.com/geographical-facts-about-the-uk/)
-- [what is the flattest continent](https://travel.allwomenstalk.com/geographical-facts-of-australia/)
-- [gouffre mirolda](https://travel.allwomenstalk.com/geographical-facts-about-europe/)
-- [do pearls hurt oysters](https://jewelry.allwomenstalk.com/amazing-facts-about-pearls/)
 - [7 Weird Pregnancy Facts ...](https://parenting.allwomenstalk.com/7-weird-pregnancy-facts/)
 - [7 Pregnancy Facts You Should Know ...](https://parenting.allwomenstalk.com/pregnancy-facts-you-should-know/)
 

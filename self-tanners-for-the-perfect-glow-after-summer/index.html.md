@@ -71,16 +71,16 @@ Are you a fan of self-tanners? Which formula do you prefer?
 
 ## Related Posts
 
-- [why do i get acne between my eyebrows](https://lifestyle.allwomenstalk.com/how-cbd-facials-work-and-how-to-make-one-at-home/)
 - [japanese facial massage routine](https://beauty.allwomenstalk.com/the-japanese-facial-massage-that-can-transform-your-face-in-seconds/)
-- [ointment for dry skin around eyes](https://skincare.allwomenstalk.com/best-hydrating-eye-creams-for-dry-skin/)
 - [intimate dermalmd serum](https://beauty.allwomenstalk.com/rejucream-the-best-skincare-for-your-vagina/)
-- [homemade face cleanser](https://skincare.allwomenstalk.com/diy-natural-face-cleanser-with-oats-and-coconut-oil/)
 - [isabel fay lubricant reviews](https://love.allwomenstalk.com/best-natural-lubes/)
-- [hyaluronic acid cons](https://skincare.allwomenstalk.com/the-pros-and-cons-of-using-hyaluronic-acid-for-skin-care/)
-- [top vitamins for skin](https://skincare.allwomenstalk.com/the-best-vitamins-for-healthy-skin/)
 - [women's best facial moisturizers](https://beauty.allwomenstalk.com/the-best-facial-moisturizers-for-fall/)
+- [why do i get acne between my eyebrows](https://lifestyle.allwomenstalk.com/how-cbd-facials-work-and-how-to-make-one-at-home/)
+- [hyaluronic acid cons](https://skincare.allwomenstalk.com/the-pros-and-cons-of-using-hyaluronic-acid-for-skin-care/)
 - [what does murumuru butter smell like](https://skincare.allwomenstalk.com/exotic-body-butters-that-will-make-you-feel-like-an-amazonian-goddess/)
+- [top vitamins for skin](https://skincare.allwomenstalk.com/the-best-vitamins-for-healthy-skin/)
+- [homemade face cleanser](https://skincare.allwomenstalk.com/diy-natural-face-cleanser-with-oats-and-coconut-oil/)
+- [ointment for dry skin around eyes](https://skincare.allwomenstalk.com/best-hydrating-eye-creams-for-dry-skin/)
 - [7 Great Moisturizers for Summer ...](https://skincare.allwomenstalk.com/great-moisturizers-for-summer/)
 - [7 Self-Tanning Lotions ...](https://skincare.allwomenstalk.com/self-tanning-lotions/)
 

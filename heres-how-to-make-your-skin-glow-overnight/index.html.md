@@ -56,16 +56,16 @@ What do you do to make your skin glow? Do you think you’ll try any of these id
 
 ## Related Posts
 
-- [makeup to cover sun spots](https://skincare.allwomenstalk.com/how-to-prevent-and-cover-up-unsightly-sunspots/)
-- [types of face makeup](https://makeup.allwomenstalk.com/makeup-101-the-different-types-of-foundation/)
-- [ice on razor bumps](https://skincare.allwomenstalk.com/effective-ways-to-treat-razor-bumps/)
-- [acne treatment mt eliza](https://skincare.allwomenstalk.com/acne-treatments-that-actually-work/)
 - [how to make your skin paler](https://skincare.allwomenstalk.com/tips-for-brightening-up-your-pale-skin/)
-- [worst processed food for dry skin](https://skincare.allwomenstalk.com/how-to-make-your-skin-better-by-cutting-processed-foods/)
+- [acne treatment mt eliza](https://skincare.allwomenstalk.com/acne-treatments-that-actually-work/)
 - [why does my face get oily fast](https://skincare.allwomenstalk.com/avoid-these-mistakes-if-you-have-oily-skin/)
 - [premature aging of skin](https://skincare.allwomenstalk.com/how-to-prevent-premature-aging-of-your-skin/)
-- [acne hacks](https://skincare.allwomenstalk.com/acne-infographics-that-will-save-your-skin/)
 - [makeup for big pores](https://skincare.allwomenstalk.com/huge-pores-heres-how-to-deal-with-them/)
+- [worst processed food for dry skin](https://skincare.allwomenstalk.com/how-to-make-your-skin-better-by-cutting-processed-foods/)
+- [ice on razor bumps](https://skincare.allwomenstalk.com/effective-ways-to-treat-razor-bumps/)
+- [acne hacks](https://skincare.allwomenstalk.com/acne-infographics-that-will-save-your-skin/)
+- [makeup to cover sun spots](https://skincare.allwomenstalk.com/how-to-prevent-and-cover-up-unsightly-sunspots/)
+- [types of face makeup](https://makeup.allwomenstalk.com/makeup-101-the-different-types-of-foundation/)
 - [Sensational DIY Face Mists You Can Make in a Flash...](https://beauty.allwomenstalk.com/diy-body-and-face-mists-your-skin-will-love/)
 - [Super- Effective Home Remedies Direct from Your Sp...](https://health.allwomenstalk.com/raid-your-spice-rack-for-some-brilliant-home-remedies/)
 
