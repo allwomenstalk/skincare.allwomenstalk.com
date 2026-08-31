@@ -60,16 +60,16 @@ Many schools, such as in New York State, do not have air conditioners and rooms 
 
 ## Related Posts
 
-- [glycerin for cracked heels](https://skincare.allwomenstalk.com/tips-for-getting-rid-of-cracked-heels-and-dry-skin/)
-- [things to achieve by 30](https://skincare.allwomenstalk.com/things-to-do-to-achieve-healthy-skin-in-30-days/)
-- [does a tan hide cellulite](https://skincare.allwomenstalk.com/make-cellulite-less-noticeable-with-these-helpful-tips-and-tricks/)
+- [tissue test for skin type](https://skincare.allwomenstalk.com/how-to-do-the-tissue-test-to-determine-your-skin-type/)
 - [reverse uv damage](https://beauty.allwomenstalk.com/can-you-reverse-the-visible-signs-of-sun-damage/)
 - [when do tan lines go away](https://skincare.allwomenstalk.com/how-to-make-weird-tan-lines-fade-quickly/)
-- [tissue test for skin type](https://skincare.allwomenstalk.com/how-to-do-the-tissue-test-to-determine-your-skin-type/)
+- [does a tan hide cellulite](https://skincare.allwomenstalk.com/make-cellulite-less-noticeable-with-these-helpful-tips-and-tricks/)
 - [how to apply sunscreen to your back](https://skincare.allwomenstalk.com/pro-tips-on-how-to-put-sunscreen-your-own-back/)
-- [baby shoulder dimples](https://beauty.allwomenstalk.com/steps-to-take-if-you-want-dimples/)
-- [how to make face glow naturally overnight](https://skincare.allwomenstalk.com/simple-ways-to-make-your-skin-glow-overnight/)
 - [treatyourskin](https://skincare.allwomenstalk.com/how-to-treat-your-skin-with-respect/)
+- [how to make face glow naturally overnight](https://skincare.allwomenstalk.com/simple-ways-to-make-your-skin-glow-overnight/)
+- [baby shoulder dimples](https://beauty.allwomenstalk.com/steps-to-take-if-you-want-dimples/)
+- [glycerin for cracked heels](https://skincare.allwomenstalk.com/tips-for-getting-rid-of-cracked-heels-and-dry-skin/)
+- [things to achieve by 30](https://skincare.allwomenstalk.com/things-to-do-to-achieve-healthy-skin-in-30-days/)
 - [8 Sun Protection Tips ...](https://skincare.allwomenstalk.com/sun-protection-tips/)
 - [10 Halloween Safety Tips to Follow ...](https://allwomenstalk.com/10-halloween-safety-tips-to-follow/)
 

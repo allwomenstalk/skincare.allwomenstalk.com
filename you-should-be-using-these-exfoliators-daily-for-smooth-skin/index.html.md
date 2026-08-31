@@ -182,15 +182,15 @@ Which of these products do you want to try?
 
 ## Related Posts
 
-- [damascus rose beauty balm](https://diy.allwomenstalk.com/rose-beauty-recipes-you-can-create-right-at-home/)
 - [eye cream diy](https://beauty.allwomenstalk.com/homemade-products-to-keep-your-eyes-bright-and-beautiful/)
 - [how to keep face young](https://skincare.allwomenstalk.com/can-face-oils-actually-keep-you-looking-young/)
-- [dark skinned beauties](https://skincare.allwomenstalk.com/a-list-of-skincare-tips-for-dark-skinned-women/)
+- [damascus rose beauty balm](https://diy.allwomenstalk.com/rose-beauty-recipes-you-can-create-right-at-home/)
+- [anti redness foundation](https://skincare.allwomenstalk.com/amazing-products-for-women-that-struggle-with-skin-redness/)
 - [sephora tarte bb cream](https://makeup.allwomenstalk.com/youll-love-these-terrific-tinted-moisturizers/)
 - [retinol candid](https://skincare.allwomenstalk.com/improve-your-skin-by-purchasing-these-retinol-products/)
 - [face foundation](https://makeup.allwomenstalk.com/best-liquid-foundations-for-winter-thatll-protect-your-skin-too/)
 - [two ingredient face mask](https://skincare.allwomenstalk.com/two-ingredient-face-masks-you-can-make-right-at-home/)
-- [anti redness foundation](https://skincare.allwomenstalk.com/amazing-products-for-women-that-struggle-with-skin-redness/)
+- [dark skinned beauties](https://skincare.allwomenstalk.com/a-list-of-skincare-tips-for-dark-skinned-women/)
 - [things to put in bath](https://skincare.allwomenstalk.com/get-better-skin-by-bringing-these-things-into-your-bath/)
 - [7 Great Exfoliants for Every Skin Type ...](https://skincare.allwomenstalk.com/7-great-exfoliants-for-every-skin-type/)
 - [7 Must-Know Tips on How to Exfoliate Your Skin ...](https://skincare.allwomenstalk.com/must-know-tips-on-how-to-exfoliate-your-skin/)

@@ -44,16 +44,16 @@ Top Image Source: _astateofsteez.tumblr.com_
 
 ## Related Posts
 
-- [dry skin in knees](https://skincare.allwomenstalk.com/tips-to-take-care-of-dry-skin-on-your-knees-and-elbows/)
-- [primer for acne scars](https://skincare.allwomenstalk.com/effective-tips-for-conealing-acne-scars/)
-- [dcolletage](https://skincare.allwomenstalk.com/super-tips-on-caring-for-your-decolletage/)
-- [does cold showers cause acne](https://skincare.allwomenstalk.com/helpful-tricks-and-tips-for-keratosis-pilaris/)
-- [foundation to cover pigmentation](https://skincare.allwomenstalk.com/foolproof-ways-to-cover-up-pigmentation/)
-- [how to get good skin in a week](https://beauty.allwomenstalk.com/ways-to-improve-the-look-of-your-skin-in-a-week/)
-- [correct order to do skincare](https://skincare.allwomenstalk.com/tips-on-how-to-apply-your-skincare-products-in-the-correct-order/)
-- [baking soda uses for skin](https://skincare.allwomenstalk.com/ways-to-get-beautiful-skin-with-baking-soda/)
 - [best ways to exfoliate skin](https://skincare.allwomenstalk.com/inventive-ways-to-exfoliate-your-skin/)
+- [dcolletage](https://skincare.allwomenstalk.com/super-tips-on-caring-for-your-decolletage/)
+- [baking soda uses for skin](https://skincare.allwomenstalk.com/ways-to-get-beautiful-skin-with-baking-soda/)
+- [primer for acne scars](https://skincare.allwomenstalk.com/effective-tips-for-conealing-acne-scars/)
+- [dry skin in knees](https://skincare.allwomenstalk.com/tips-to-take-care-of-dry-skin-on-your-knees-and-elbows/)
+- [how to get good skin in a week](https://beauty.allwomenstalk.com/ways-to-improve-the-look-of-your-skin-in-a-week/)
 - [witch hazel benefits for the face](https://skincare.allwomenstalk.com/reasons-to-add-witch-hazel-in-your-skin-care-routine/)
+- [foundation to cover pigmentation](https://skincare.allwomenstalk.com/foolproof-ways-to-cover-up-pigmentation/)
+- [does cold showers cause acne](https://skincare.allwomenstalk.com/helpful-tricks-and-tips-for-keratosis-pilaris/)
+- [correct order to do skincare](https://skincare.allwomenstalk.com/tips-on-how-to-apply-your-skincare-products-in-the-correct-order/)
 - [7 Things to Eat for Good Skin ...](https://skincare.allwomenstalk.com/7-things-to-eat-for-good-skin/)
 - [7 Ways to Eat for Better Skin ...](https://skincare.allwomenstalk.com/ways-to-eat-for-better-skin/)
 

@@ -56,16 +56,16 @@ Dark under eye circles can be very annoying. They act as a giant sign to the wor
 
 ## Related Posts
 
-- [hydrocortisone cream after shaving](https://skincare.allwomenstalk.com/super-easy-ways-to-get-rid-of-razor-burn/)
-- [old wives tales for removing splinters](https://health.allwomenstalk.com/ways-to-remove-a-splinter-safely-and-painlessly/)
+- [best ways to whiten your teeth](https://beauty.allwomenstalk.com/best-ways-to-whiten-your-teeth/)
+- [how to identify real cinnamon](https://food.allwomenstalk.com/ways-to-tell-if-your-cinnamon-is-true-cinnamon/)
 - [why does ginger burn my throat](https://health.allwomenstalk.com/detox-symptoms-and-how-to-avoid-them/)
+- [standard process recipes](https://food.allwomenstalk.com/common-detox-ingredients-you-probably-have-in-your-own-kitchen/)
+- [old wives tales for removing splinters](https://health.allwomenstalk.com/ways-to-remove-a-splinter-safely-and-painlessly/)
+- [to reduce exposure to pesticides](https://food.allwomenstalk.com/ways-to-reduce-your-exposure-to-pesticides/)
 - [natural remedies for dry itchy skin](https://skincare.allwomenstalk.com/home-remedies-for-dry-itchy-skin/)
 - [how to detox from air pollution](https://health.allwomenstalk.com/detoxing-methods-to-purge-your-body-of-air-pollution/)
 - [coconut oil for razor burn](https://skincare.allwomenstalk.com/effective-home-remedies-for-razor-burn/)
-- [best ways to whiten your teeth](https://beauty.allwomenstalk.com/best-ways-to-whiten-your-teeth/)
-- [how to identify real cinnamon](https://food.allwomenstalk.com/ways-to-tell-if-your-cinnamon-is-true-cinnamon/)
-- [to reduce exposure to pesticides](https://food.allwomenstalk.com/ways-to-reduce-your-exposure-to-pesticides/)
-- [standard process recipes](https://food.allwomenstalk.com/common-detox-ingredients-you-probably-have-in-your-own-kitchen/)
+- [hydrocortisone cream after shaving](https://skincare.allwomenstalk.com/super-easy-ways-to-get-rid-of-razor-burn/)
 - [How Dark under Eye Circles Appear ...](https://allwomenstalk.com/how-dark-under-eye-circles-appear/)
 - [Get Rid of Dark under Eye Circles Right in the Com...](https://allwomenstalk.com/get-rid-of-dark-under-eye-circles-right-in-the-comfort-of-your-own-home/)
 

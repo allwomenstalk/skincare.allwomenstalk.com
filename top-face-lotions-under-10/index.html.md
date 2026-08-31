@@ -63,16 +63,16 @@ Don’t forget to moisturize, ladies! These are some of my favorite lotions that
 
 ## Related Posts
 
-- [best cleansing powder](https://skincare.allwomenstalk.com/beautifying-facial-cleansing-powders-you-cant-pass-up/)
-- [best shaving cream for women's hair](https://skincare.allwomenstalk.com/womens-shaving-cream-brands-for-your-smoothest-shave-ever/)
-- [homemade exfoliants](https://skincare.allwomenstalk.com/simple-diy-scrubs-to-smooth-out-your-skin-for-spring/)
 - [cheap vs expensive skin care products](https://skincare.allwomenstalk.com/reasons-not-to-waste-money-on-expensive-skincare-products/)
-- [lavender scented items](https://skincare.allwomenstalk.com/lavender-scented-skincare-products-sure-to-relax-you/)
-- [indian healing clay whole foods](https://skincare.allwomenstalk.com/reasons-to-use-bentonite-clay-for-beautiful-skin/)
-- [food masks for skin](https://skincare.allwomenstalk.com/best-foods-for-face-masks/)
 - [shea butter vitamins](https://skincare.allwomenstalk.com/reasons-to-use-shea-butter-for-your-skin/)
+- [homemade exfoliants](https://skincare.allwomenstalk.com/simple-diy-scrubs-to-smooth-out-your-skin-for-spring/)
+- [best shaving cream for women's hair](https://skincare.allwomenstalk.com/womens-shaving-cream-brands-for-your-smoothest-shave-ever/)
 - [fruity skincare](https://skincare.allwomenstalk.com/delicious-fruity-skincare-products-to-make-you-happy/)
+- [best cleansing powder](https://skincare.allwomenstalk.com/beautifying-facial-cleansing-powders-you-cant-pass-up/)
+- [indian healing clay whole foods](https://skincare.allwomenstalk.com/reasons-to-use-bentonite-clay-for-beautiful-skin/)
 - [boscia konjac cleansing sponge](https://skincare.allwomenstalk.com/cool-and-unique-facial-cleansing-tools/)
+- [food masks for skin](https://skincare.allwomenstalk.com/best-foods-for-face-masks/)
+- [lavender scented items](https://skincare.allwomenstalk.com/lavender-scented-skincare-products-sure-to-relax-you/)
 - [8 Luxurious Body Lotions ...](https://skincare.allwomenstalk.com/8-luxurious-body-lotions/)
 - [7 Great Drugstore Body Lotions ...](https://skincare.allwomenstalk.com/great-drugstore-body-lotions/)
 

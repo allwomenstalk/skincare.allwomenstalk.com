@@ -195,15 +195,15 @@ I love making lip scrubs. They're excellent gifts for friends but it's nice know
 ## Related Posts
 
 - [feed lips pure 09 shimmer](https://makeup.allwomenstalk.com/decadent-drugstore-lip-glosses-you-have-to-try/)
-- [vegan lip balms](https://makeup.allwomenstalk.com/all-natural-organic-vegan-lip-balms-that-you-must-try/)
-- [mac derriere](https://makeup.allwomenstalk.com/gorgeous-autumn-lipsticks-to-wear-this-season/)
-- [what can i use instead of lipstick](https://beauty.allwomenstalk.com/gorgeous-alternatives-to-lipstick-to-try/)
-- [girl long lipstick](https://makeup.allwomenstalk.com/top-long-lasting-lip-colors/)
-- [best lipstick for work](https://makeup.allwomenstalk.com/awesome-lipsticks-appropriate-for-work/)
-- [luxury lip care](https://beauty.allwomenstalk.com/luxury-lip-balms-that-are-worth-the-money/)
 - [josie maran embrace it honey lipstick](https://makeup.allwomenstalk.com/luscious-lipsticks-for-summer-that-youre-gonna-love/)
-- [how to get chapstick out of hair](https://beauty.allwomenstalk.com/surprising-uses-for-lip-balm-other-than-on-your-lips/)
+- [girl long lipstick](https://makeup.allwomenstalk.com/top-long-lasting-lip-colors/)
+- [what can i use instead of lipstick](https://beauty.allwomenstalk.com/gorgeous-alternatives-to-lipstick-to-try/)
+- [vegan lip balms](https://makeup.allwomenstalk.com/all-natural-organic-vegan-lip-balms-that-you-must-try/)
+- [luxury lip care](https://beauty.allwomenstalk.com/luxury-lip-balms-that-are-worth-the-money/)
+- [best lipstick for work](https://makeup.allwomenstalk.com/awesome-lipsticks-appropriate-for-work/)
 - [loreal paris riche le stylo smoky neon](https://makeup.allwomenstalk.com/neon-lipstick-colors-to-try/)
+- [how to get chapstick out of hair](https://beauty.allwomenstalk.com/surprising-uses-for-lip-balm-other-than-on-your-lips/)
+- [mac derriere](https://makeup.allwomenstalk.com/gorgeous-autumn-lipsticks-to-wear-this-season/)
 - [7 Facial Scrubs I Love ...](https://skincare.allwomenstalk.com/facial-scrubs-i-love/)
 - [10 Best Body Scrubs ...](https://allwomenstalk.com/10-best-body-scrubs/)
 

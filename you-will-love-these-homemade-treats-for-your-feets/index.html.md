@@ -254,16 +254,16 @@ Your feet will love you for this.
 
 ## Related Posts
 
-- [cookies for santa stand](https://parenting.allwomenstalk.com/cant-stand-cookies-alternatives-santa-will-adore/)
-- [chrstmas cookies](https://food.allwomenstalk.com/unique-christmas-cookies-santa-hasnt-even-tasted/)
 - [barbie shots recipe](https://food.allwomenstalk.com/these-adorable-jello-shots-are-almost-too-cute-to-shoot/)
-- [christmas themed snack](https://food.allwomenstalk.com/these-christmas-themed-snacks-will-add-oomph-to-your-party/)
+- [cookies for santa stand](https://parenting.allwomenstalk.com/cant-stand-cookies-alternatives-santa-will-adore/)
 - [gingerbread biscotti starbucks recipe](https://food.allwomenstalk.com/gingerbread-recipes-that-just-cant-disappoint/)
 - [food in snow](https://food.allwomenstalk.com/desserts-you-can-make-using-freshly-fallen-snow/)
-- [fudge fancy recipe](https://food.allwomenstalk.com/dig-into-these-decadent-fudge-recipes/)
 - [what is the hardest thing to bake](https://food.allwomenstalk.com/romantic-desserts-to-make-with-your-bf-to-set-the-mood/)
+- [fudge fancy recipe](https://food.allwomenstalk.com/dig-into-these-decadent-fudge-recipes/)
 - [most delicious donut in the world](https://food.allwomenstalk.com/doughnuts-thatll-make-you-go-oooh/)
+- [chrstmas cookies](https://food.allwomenstalk.com/unique-christmas-cookies-santa-hasnt-even-tasted/)
 - [chewing gum](https://love.allwomenstalk.com/the-tastiest-flavors-of-gum-to-chew-before-kissing/)
+- [christmas themed snack](https://food.allwomenstalk.com/these-christmas-themed-snacks-will-add-oomph-to-your-party/)
 - [Tasty Treats ...](https://allwomenstalk.com/tasty-treats/)
 - [7 Best Homemade Holiday Treats ...](https://allwomenstalk.com/7-best-homemade-holiday-treats/)
 

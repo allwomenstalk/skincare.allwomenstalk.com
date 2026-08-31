@@ -189,16 +189,16 @@ There you have it! 10 tasty and nutritious drinks that’ll help you in your que
 
 ## Related Posts
 
-- [fresh fruit juices recipes](https://food.allwomenstalk.com/healthy-homemade-juice-recipes/)
-- [flavoured water ideas](https://food.allwomenstalk.com/fantastic-flavored-water-recipes-you-can-try/)
-- [easy fruity alcoholic drinks](https://food.allwomenstalk.com/fruity-alcoholic-drink-recipes-to-try/)
-- [calorie dense smoothies](https://food.allwomenstalk.com/low-calorie-smoothies-to-try/)
-- [what do you prefer tea or coffee](https://food.allwomenstalk.com/steps-on-how-to-make-the-perfect-iced-coffee-at-home/)
-- [smoothie with greek yogurt recipe](https://food.allwomenstalk.com/smoothie-recipes-using-greek-yogurt/)
-- [skinny margaritas recipe](https://food.allwomenstalk.com/skinny-margarita-recipes-to-try-this-summer/)
 - [what you need to make a smoothie](https://food.allwomenstalk.com/essentials-to-making-the-perfect-smoothie/)
-- [fruit drink recipes non alcoholic](https://food.allwomenstalk.com/fruity-non-alcoholic-drink-recipes/)
+- [easy fruity alcoholic drinks](https://food.allwomenstalk.com/fruity-alcoholic-drink-recipes-to-try/)
+- [what do you prefer tea or coffee](https://food.allwomenstalk.com/steps-on-how-to-make-the-perfect-iced-coffee-at-home/)
+- [calorie dense smoothies](https://food.allwomenstalk.com/low-calorie-smoothies-to-try/)
+- [flavoured water ideas](https://food.allwomenstalk.com/fantastic-flavored-water-recipes-you-can-try/)
+- [fresh fruit juices recipes](https://food.allwomenstalk.com/healthy-homemade-juice-recipes/)
 - [skinny milkshake](https://food.allwomenstalk.com/ingredients-to-making-a-skinny-milkshake/)
+- [skinny margaritas recipe](https://food.allwomenstalk.com/skinny-margarita-recipes-to-try-this-summer/)
+- [smoothie with greek yogurt recipe](https://food.allwomenstalk.com/smoothie-recipes-using-greek-yogurt/)
+- [fruit drink recipes non alcoholic](https://food.allwomenstalk.com/fruity-non-alcoholic-drink-recipes/)
 - [9 Homemade Skincare Treatments ...](https://allwomenstalk.com/9-homemade-skincare-treatments/)
 - [7 DIY Beauty Treatments to Try ...](https://beauty.allwomenstalk.com/diy-beauty-treatments-to-try/)
 

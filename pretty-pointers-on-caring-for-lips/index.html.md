@@ -44,16 +44,16 @@ Top Image Source: [eyeshadowlipstick.com](http://www.eyeshadowlipstick.com/date/
 
 ## Related Posts
 
-- [color le stylo eye smoldering plum](https://beauty.allwomenstalk.com/tips-on-how-to-wear-matte-lips-this-season/)
-- [8 Awesome Tips for Kissable Lips ...](https://beauty.allwomenstalk.com/awesome-tips-for-kissable-lips/)
-- [preppy makeup looks](https://beauty.allwomenstalk.com/tricks-and-tips-for-pretty-lips-this-fall/)
-- [7 Steps to Making Your Own Lip Gloss This Summer ....](https://diy.allwomenstalk.com/steps-to-making-your-own-lip-gloss-this-summer/)
-- [loreal paris color riche le stylo eye shadow infin...](https://makeup.allwomenstalk.com/waterproof-eye-liners/)
 - [8 Fab Tinted Lip Glosses That I Love ...](https://makeup.allwomenstalk.com/fab-tinted-lip-glosses-that-i-love/)
+- [preppy makeup looks](https://beauty.allwomenstalk.com/tricks-and-tips-for-pretty-lips-this-fall/)
+- [color le stylo eye smoldering plum](https://beauty.allwomenstalk.com/tips-on-how-to-wear-matte-lips-this-season/)
+- [loreal paris color riche le stylo eye shadow infin...](https://makeup.allwomenstalk.com/waterproof-eye-liners/)
 - [7 Helpful Tips on Choosing the Right Lipstick Shad...](https://makeup.allwomenstalk.com/helpful-tips-on-choosing-the-right-lipstick-shade-for-you/)
-- [7 Lipstick Commandments to Follow ...](https://makeup.allwomenstalk.com/lipstick-commandments-to-follow/)
+- [7 Steps to Making Your Own Lip Gloss This Summer ....](https://diy.allwomenstalk.com/steps-to-making-your-own-lip-gloss-this-summer/)
 - [how to get pinker lips](https://beauty.allwomenstalk.com/ways-to-get-pinker-lips/)
 - [7 Luscious Lip Balms That You've Got to Have This ...](https://skincare.allwomenstalk.com/luscious-lip-balms-that-youve-got-to-have-this-summer/)
+- [7 Lipstick Commandments to Follow ...](https://makeup.allwomenstalk.com/lipstick-commandments-to-follow/)
+- [8 Awesome Tips for Kissable Lips ...](https://beauty.allwomenstalk.com/awesome-tips-for-kissable-lips/)
 - [8 Treats for Luscious Lips ...](https://makeup.allwomenstalk.com/treats-for-luscious-lips/)
 - [7 Tips for Perfect Nude Lips ...](https://makeup.allwomenstalk.com/tips-for-perfect-nude-lips/)
 

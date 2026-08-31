@@ -112,16 +112,16 @@ Top Image Source: [blogspot.in](http://lovelylifehelen-fashion-helen.blogspot.co
 
 ## Related Posts
 
-- [lemon and baking soda for acne](https://beauty.allwomenstalk.com/home-remedies-for-acne/)
-- [burnt toast stomach ache](https://health.allwomenstalk.com/natural-ways-to-ease-an-upset-stomach/)
-- [vaseline eyeshadow](https://beauty.allwomenstalk.com/uses-of-vaseline/)
-- [detox after drinking alcohol](https://health.allwomenstalk.com/ways-to-detox-after-drinking/)
-- [baking soda itchy scalp](https://skincare.allwomenstalk.com/helpful-home-remedies-for-an-itchy-scalp/)
-- [how to deal with a bad tattoo](https://beauty.allwomenstalk.com/ways-to-get-rid-of-a-bad-tattoo/)
-- [bath salt blends](https://diy.allwomenstalk.com/bath-salts-to-make-yourself/)
 - [witch hazel for cleaning piercings](https://jewelry.allwomenstalk.com/ways-to-care-for-body-piercings/)
-- [fighting a hangover](https://lifestyle.allwomenstalk.com/little-known-ways-to-fight-a-hangover/)
+- [detox after drinking alcohol](https://health.allwomenstalk.com/ways-to-detox-after-drinking/)
+- [how to deal with a bad tattoo](https://beauty.allwomenstalk.com/ways-to-get-rid-of-a-bad-tattoo/)
+- [baking soda itchy scalp](https://skincare.allwomenstalk.com/helpful-home-remedies-for-an-itchy-scalp/)
+- [lemon and baking soda for acne](https://beauty.allwomenstalk.com/home-remedies-for-acne/)
+- [bath salt blends](https://diy.allwomenstalk.com/bath-salts-to-make-yourself/)
 - [dry hands in winter home remedies](https://skincare.allwomenstalk.com/remedies-for-dry-hands/)
+- [burnt toast stomach ache](https://health.allwomenstalk.com/natural-ways-to-ease-an-upset-stomach/)
+- [fighting a hangover](https://lifestyle.allwomenstalk.com/little-known-ways-to-fight-a-hangover/)
+- [vaseline eyeshadow](https://beauty.allwomenstalk.com/uses-of-vaseline/)
 - [17 Tips on Creating a Home Bath Spa ...](https://allwomenstalk.com/how-to-get-rid-of-stress-with-a-home-bath-spa/)
 - [8 Things to Add to Your Bath ...](https://allwomenstalk.com/things-to-add-to-your-bath/)
 

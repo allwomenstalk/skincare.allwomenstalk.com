@@ -50,16 +50,16 @@ As you can see, there are many amazing witch hazel benefits for our skin! Keep i
 
 ## Related Posts
 
-- [foundation to cover pigmentation](https://skincare.allwomenstalk.com/foolproof-ways-to-cover-up-pigmentation/)
-- [milk of magnesia for oily skin](https://skincare.allwomenstalk.com/amazing-tips-to-calm-an-oily-t-zone/)
-- [how to clear hormonal.acne](https://skincare.allwomenstalk.com/ways-to-treat-hormonal-acne/)
 - [baking soda uses for skin](https://skincare.allwomenstalk.com/ways-to-get-beautiful-skin-with-baking-soda/)
 - [aging oily skin](https://skincare.allwomenstalk.com/best-anti-aging-tips-for-oily-skin/)
-- [how to become prettier in a week](https://beauty.allwomenstalk.com/ways-to-get-great-skin-in-2-weeks/)
+- [milk of magnesia for oily skin](https://skincare.allwomenstalk.com/amazing-tips-to-calm-an-oily-t-zone/)
 - [exfoliate benefits](https://skincare.allwomenstalk.com/top-notch-benefits-of-exfoliating-your-skin/)
-- [does cold showers cause acne](https://skincare.allwomenstalk.com/helpful-tricks-and-tips-for-keratosis-pilaris/)
-- [foxy spray tan](https://skincare.allwomenstalk.com/best-self-tanning-tips-for-a-foxy-glow/)
+- [foundation to cover pigmentation](https://skincare.allwomenstalk.com/foolproof-ways-to-cover-up-pigmentation/)
 - [dcolletage](https://skincare.allwomenstalk.com/super-tips-on-caring-for-your-decolletage/)
+- [does cold showers cause acne](https://skincare.allwomenstalk.com/helpful-tricks-and-tips-for-keratosis-pilaris/)
+- [how to become prettier in a week](https://beauty.allwomenstalk.com/ways-to-get-great-skin-in-2-weeks/)
+- [how to clear hormonal.acne](https://skincare.allwomenstalk.com/ways-to-treat-hormonal-acne/)
+- [foxy spray tan](https://skincare.allwomenstalk.com/best-self-tanning-tips-for-a-foxy-glow/)
 - [8 Things That Are Good for Your Skin ...](https://skincare.allwomenstalk.com/things-that-are-good-for-your-skin/)
 - [9 Homemade Skincare Treatments ...](https://allwomenstalk.com/9-homemade-skincare-treatments/)
 

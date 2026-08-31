@@ -42,16 +42,16 @@ You don't want to end up with cancer, all because you were trying to get a tan. 
 
 ## Related Posts
 
-- [does self tan cover stretch marks](https://skincare.allwomenstalk.com/how-to-hide-the-spider-veins-and-stretch-marks/)
+- [donna briggs skin bleaching](https://skincare.allwomenstalk.com/are-you-making-these-mistakes-when-washing-your-face/)
+- [how to get a glow up overnight](https://skincare.allwomenstalk.com/heres-how-to-make-your-skin-glow-overnight/)
 - [worst processed food for dry skin](https://skincare.allwomenstalk.com/how-to-make-your-skin-better-by-cutting-processed-foods/)
 - [little yummy masks](https://skincare.allwomenstalk.com/homemade-face-masks-for-acne-prone-skin/)
 - [achieve flawless looking skin](https://beauty.allwomenstalk.com/ways-to-make-your-skin-look-better-in-photographs/)
-- [how to get a glow up overnight](https://skincare.allwomenstalk.com/heres-how-to-make-your-skin-glow-overnight/)
-- [donna briggs skin bleaching](https://skincare.allwomenstalk.com/are-you-making-these-mistakes-when-washing-your-face/)
-- [types of face makeup](https://makeup.allwomenstalk.com/makeup-101-the-different-types-of-foundation/)
 - [breakout overnight](https://skincare.allwomenstalk.com/bedtime-tips-to-prevent-breaking-out/)
-- [skin icing before and after](https://skincare.allwomenstalk.com/this-is-what-you-should-know-about-skin-icing/)
+- [types of face makeup](https://makeup.allwomenstalk.com/makeup-101-the-different-types-of-foundation/)
 - [makeup to cover sun spots](https://skincare.allwomenstalk.com/how-to-prevent-and-cover-up-unsightly-sunspots/)
+- [does self tan cover stretch marks](https://skincare.allwomenstalk.com/how-to-hide-the-spider-veins-and-stretch-marks/)
+- [skin icing before and after](https://skincare.allwomenstalk.com/this-is-what-you-should-know-about-skin-icing/)
 - [7 Tips on Self Tanning ...](https://skincare.allwomenstalk.com/tips-on-self-tanning/)
 - [A Few Tips to Get Your Skin in Tip-Top Shape ...](https://allwomenstalk.com/a-few-tips-to-get-your-skin-in-tip-top-shape/)
 

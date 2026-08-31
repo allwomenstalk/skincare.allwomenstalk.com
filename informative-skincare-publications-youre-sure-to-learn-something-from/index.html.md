@@ -42,15 +42,15 @@ What skincare publications do you read? I do tons of research for my work and Iâ
 
 ## Related Posts
 
-- [what you need for a relaxing bath](https://beauty.allwomenstalk.com/essentials-for-a-perfect-and-relaxing-bath/)
 - [emmenice](https://skincare.allwomenstalk.com/things-to-know-about-probiotics-in-skincare/)
 - [ingredients in face masks](https://skincare.allwomenstalk.com/ingredients-to-look-for-in-a-facial-mask/)
-- [winter green scrubs](https://skincare.allwomenstalk.com/bye-bye-winter-skin-diy-sugar-scrubs-to-try/)
 - [homemade oil cleanser](https://beauty.allwomenstalk.com/homemade-beauty-products-for-top-to-toe-tlc/)
 - [does one size fit all](https://skincare.allwomenstalk.com/reasons-why-skincare-isnt-one-size-fits-all/)
+- [what you need for a relaxing bath](https://beauty.allwomenstalk.com/essentials-for-a-perfect-and-relaxing-bath/)
 - [diy baby bubble bath](https://beauty.allwomenstalk.com/you-simply-have-to-pamper-yourself-with-these-diy-bubble-bath-recipes/)
-- [selling natural products](https://beauty.allwomenstalk.com/beauty-companies-that-sell-natural-products/)
+- [winter green scrubs](https://skincare.allwomenstalk.com/bye-bye-winter-skin-diy-sugar-scrubs-to-try/)
 - [shaving gel substitute](https://beauty.allwomenstalk.com/products-that-are-great-alternatives-to-shaving-cream/)
+- [selling natural products](https://beauty.allwomenstalk.com/beauty-companies-that-sell-natural-products/)
 - [calamine lotion manufacturer](https://diy.allwomenstalk.com/alternate-uses-for-moisturizer-to-get-the-most-from-your-money/)
 - [7 Younger-Looking Skin Tips You Should Know ...](https://skincare.allwomenstalk.com/younger-looking-skin-tips-you-should-know/)
 - [7 Skincare Tips for Twenty-Somethings ...](https://skincare.allwomenstalk.com/skincare-tips-for-twenty-somethings/)

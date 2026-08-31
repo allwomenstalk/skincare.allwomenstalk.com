@@ -42,16 +42,16 @@ Do you use primer? Will this information change your mind?
 
 ## Related Posts
 
-- [achieve flawless looking skin](https://beauty.allwomenstalk.com/ways-to-make-your-skin-look-better-in-photographs/)
-- [donna briggs skin bleaching](https://skincare.allwomenstalk.com/are-you-making-these-mistakes-when-washing-your-face/)
-- [little yummy masks](https://skincare.allwomenstalk.com/homemade-face-masks-for-acne-prone-skin/)
 - [does self tan cover stretch marks](https://skincare.allwomenstalk.com/how-to-hide-the-spider-veins-and-stretch-marks/)
-- [what helps with tanning](https://skincare.allwomenstalk.com/tanning-tips-how-to-get-sunkissed-skin-instead-of-a-sunburn/)
-- [types of face makeup](https://makeup.allwomenstalk.com/makeup-101-the-different-types-of-foundation/)
-- [how to get a glow up overnight](https://skincare.allwomenstalk.com/heres-how-to-make-your-skin-glow-overnight/)
 - [oily vs glowy skin](https://makeup.allwomenstalk.com/here-is-how-to-transform-your-oily-skin-into-the-dewy-glowy-type-of-skin-everyone-wants/)
+- [little yummy masks](https://skincare.allwomenstalk.com/homemade-face-masks-for-acne-prone-skin/)
 - [breakout overnight](https://skincare.allwomenstalk.com/bedtime-tips-to-prevent-breaking-out/)
+- [what helps with tanning](https://skincare.allwomenstalk.com/tanning-tips-how-to-get-sunkissed-skin-instead-of-a-sunburn/)
+- [how to get a glow up overnight](https://skincare.allwomenstalk.com/heres-how-to-make-your-skin-glow-overnight/)
+- [achieve flawless looking skin](https://beauty.allwomenstalk.com/ways-to-make-your-skin-look-better-in-photographs/)
+- [types of face makeup](https://makeup.allwomenstalk.com/makeup-101-the-different-types-of-foundation/)
 - [skin icing before and after](https://skincare.allwomenstalk.com/this-is-what-you-should-know-about-skin-icing/)
+- [donna briggs skin bleaching](https://skincare.allwomenstalk.com/are-you-making-these-mistakes-when-washing-your-face/)
 - [A Few Tips to Get Your Skin in Tip-Top Shape ...](https://allwomenstalk.com/a-few-tips-to-get-your-skin-in-tip-top-shape/)
 - [15 Benefits of Using Makeup Primer before You Appl...](https://makeup.allwomenstalk.com/benefits-of-using-makeup-primer-before-you-apply-your-makeup/)
 

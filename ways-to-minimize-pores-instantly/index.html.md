@@ -46,16 +46,16 @@ Top Image Source: _dripslikehoney.com_
 
 ## Related Posts
 
-- [bad food for skin](https://skincare.allwomenstalk.com/common-foods-that-wreak-havoc-on-your-skin/)
+- [how to get good skin in a week](https://beauty.allwomenstalk.com/ways-to-improve-the-look-of-your-skin-in-a-week/)
 - [primer for acne scars](https://skincare.allwomenstalk.com/effective-tips-for-conealing-acne-scars/)
 - [witch hazel benefits for the face](https://skincare.allwomenstalk.com/reasons-to-add-witch-hazel-in-your-skin-care-routine/)
-- [does cold showers cause acne](https://skincare.allwomenstalk.com/helpful-tricks-and-tips-for-keratosis-pilaris/)
-- [best ways to exfoliate skin](https://skincare.allwomenstalk.com/inventive-ways-to-exfoliate-your-skin/)
-- [foundation to cover pigmentation](https://skincare.allwomenstalk.com/foolproof-ways-to-cover-up-pigmentation/)
-- [dcolletage](https://skincare.allwomenstalk.com/super-tips-on-caring-for-your-decolletage/)
 - [dry skin in knees](https://skincare.allwomenstalk.com/tips-to-take-care-of-dry-skin-on-your-knees-and-elbows/)
-- [how to get good skin in a week](https://beauty.allwomenstalk.com/ways-to-improve-the-look-of-your-skin-in-a-week/)
+- [foundation to cover pigmentation](https://skincare.allwomenstalk.com/foolproof-ways-to-cover-up-pigmentation/)
 - [correct order to do skincare](https://skincare.allwomenstalk.com/tips-on-how-to-apply-your-skincare-products-in-the-correct-order/)
+- [bad food for skin](https://skincare.allwomenstalk.com/common-foods-that-wreak-havoc-on-your-skin/)
+- [best ways to exfoliate skin](https://skincare.allwomenstalk.com/inventive-ways-to-exfoliate-your-skin/)
+- [does cold showers cause acne](https://skincare.allwomenstalk.com/helpful-tricks-and-tips-for-keratosis-pilaris/)
+- [dcolletage](https://skincare.allwomenstalk.com/super-tips-on-caring-for-your-decolletage/)
 - [7 Ways to Get Perfect Skin ...](https://skincare.allwomenstalk.com/7-ways-to-get-perfect-skin/)
 - [8 Ways to Unblock Your Pores ...](https://skincare.allwomenstalk.com/ways-to-unblock-your-pores/)
 

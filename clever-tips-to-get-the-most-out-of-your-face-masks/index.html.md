@@ -50,16 +50,16 @@ I hope you were able to pick up some helpful tips on getting the most out of you
 
 ## Related Posts
 
-- [weird medieval beauty standards](https://beauty.allwomenstalk.com/strange-beauty-ingredients-women-used-in-the-past/)
-- [superstar make up](https://beauty.allwomenstalk.com/top-beauty-tips-to-make-you-look-like-a-superstar/)
-- [aerosmith fashion](https://beauty.allwomenstalk.com/beauty-secrets-from-aerosmiths-steven-tyler/)
-- [splendid beauty salon](https://beauty.allwomenstalk.com/splendid-beauty-tips-for-redheads/)
-- [model with thick eyebrows cara](https://beauty.allwomenstalk.com/timeless-beauty-looks-thatll-always-be-in-style/)
-- [eco friendly beauty tips](https://beauty.allwomenstalk.com/amazing-eco-friendly-beauty-tips/)
-- [marilyn monroe makeup quotes](https://beauty.allwomenstalk.com/inspiring-bits-of-beauty-advice-from-marilyn-monroe/)
 - [skincare infographics](https://beauty.allwomenstalk.com/helpful-beauty-infographics-to-pore-over/)
-- [uses of wax](https://beauty.allwomenstalk.com/uses-for-wax-in-the-beauty-industry/)
+- [weird medieval beauty standards](https://beauty.allwomenstalk.com/strange-beauty-ingredients-women-used-in-the-past/)
+- [eco friendly beauty tips](https://beauty.allwomenstalk.com/amazing-eco-friendly-beauty-tips/)
+- [splendid beauty salon](https://beauty.allwomenstalk.com/splendid-beauty-tips-for-redheads/)
+- [aerosmith fashion](https://beauty.allwomenstalk.com/beauty-secrets-from-aerosmiths-steven-tyler/)
 - [women with beautiful hair](https://beauty.allwomenstalk.com/beauty-tips-for-women-with-dark-hair/)
+- [marilyn monroe makeup quotes](https://beauty.allwomenstalk.com/inspiring-bits-of-beauty-advice-from-marilyn-monroe/)
+- [model with thick eyebrows cara](https://beauty.allwomenstalk.com/timeless-beauty-looks-thatll-always-be-in-style/)
+- [uses of wax](https://beauty.allwomenstalk.com/uses-for-wax-in-the-beauty-industry/)
+- [superstar make up](https://beauty.allwomenstalk.com/top-beauty-tips-to-make-you-look-like-a-superstar/)
 - [7 Makeup Tips for Girls ...](https://allwomenstalk.com/7-makeup-tips-for-girls/)
 - [9 Make up Tricks for a Picture Perfect Face ...](https://makeup.allwomenstalk.com/make-up-tricks-for-a-picture-perfect-face/)
 

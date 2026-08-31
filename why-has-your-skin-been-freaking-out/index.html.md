@@ -42,15 +42,15 @@ Which of these things could be causing your skin to freak out?
 
 ## Related Posts
 
+- [paris color smoky avant azure](https://love.allwomenstalk.com/do-you-do-these-soppy-things-when-youre-in-love/)
+- [Are You the Punniest Person in Your Friend Group?](https://funny.allwomenstalk.com/are-you-the-punniest-person-in-your-friend-group/)
+- [the knot newlywed](https://love.allwomenstalk.com/what-do-newlyweds-really-think-after-they-tie-the-knot/)
+- [Should You Swap out Your Tampons for a Menstrual C...](https://health.allwomenstalk.com/should-you-swap-out-your-tampons-for-a-menstrual-cup/)
+- [purse lips gif](https://love.allwomenstalk.com/are-you-actually-ready-to-lose-your-virginity/)
 - [Should You Spring Clean Your Relationship Too?](https://love.allwomenstalk.com/should-you-spring-clean-your-relationship-too/)
 - [What's Your Twitter User Type?](https://apps.allwomenstalk.com/whats-your-twitter-user-type/)
-- [purse lips gif](https://love.allwomenstalk.com/are-you-actually-ready-to-lose-your-virginity/)
-- [Can These 36 Questions Actually Make Strangers Fal...](https://love.allwomenstalk.com/can-these-questions-actually-make-strangers-fall-in-love/)
-- [the knot newlywed](https://love.allwomenstalk.com/what-do-newlyweds-really-think-after-they-tie-the-knot/)
 - [If Your Political Views Are Polarized Should You B...](https://love.allwomenstalk.com/if-your-political-views-are-polarized-should-you-be-with-him/)
-- [Are You the Punniest Person in Your Friend Group?](https://funny.allwomenstalk.com/are-you-the-punniest-person-in-your-friend-group/)
-- [Should You Swap out Your Tampons for a Menstrual C...](https://health.allwomenstalk.com/should-you-swap-out-your-tampons-for-a-menstrual-cup/)
-- [paris color smoky avant azure](https://love.allwomenstalk.com/do-you-do-these-soppy-things-when-youre-in-love/)
+- [Can These 36 Questions Actually Make Strangers Fal...](https://love.allwomenstalk.com/can-these-questions-actually-make-strangers-fall-in-love/)
 - [Do You Work in One of the Unhealthiest Jobs in Ame...](https://vityle.com/do-you-work-in-one-of-the-unhealthiest-jobs-in-america/)
 - [Skin Care Problems and Answers ...](https://allwomenstalk.com/skin-care-problems-and-answers/)
 - [About My Skin Cancer](https://allwomenstalk.com/about-my-skin-cancer/)

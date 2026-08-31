@@ -42,16 +42,16 @@ With a big event just around the corner, it is natural to want to get your skin 
 
 ## Related Posts
 
-- [foods that hydrate skin](https://skincare.allwomenstalk.com/foods-to-eat-for-hydrated-skin/)
-- [fair or pale skin](https://skincare.allwomenstalk.com/steps-to-embracing-fair-skin-and-learning-to-love-it/)
-- [acne skincare tips](https://skincare.allwomenstalk.com/no-nonsense-skin-care-tips-for-acne-prone-skin/)
 - [reduce sun exposure](https://skincare.allwomenstalk.com/super-simple-ways-to-control-your-sun-exposure/)
-- [how to get a tan without the sun](https://beauty.allwomenstalk.com/ways-to-get-a-tan-without-actually-tanning/)
-- [why do my acne keeps coming back](https://skincare.allwomenstalk.com/reasons-your-acne-keeps-coming-back/)
 - [skin care eye area](https://skincare.allwomenstalk.com/helpful-tips-on-caring-for-the-skin-around-your-eyes/)
 - [desert skin care](https://skincare.allwomenstalk.com/skin-conditions-to-consider-for-desert-dwellers/)
 - [how makeup changes your face](https://skincare.allwomenstalk.com/diet-and-makeup-changes-you-can-make-for-healthy-skin/)
+- [foods that hydrate skin](https://skincare.allwomenstalk.com/foods-to-eat-for-hydrated-skin/)
+- [why do my acne keeps coming back](https://skincare.allwomenstalk.com/reasons-your-acne-keeps-coming-back/)
 - [natural ways to prevent wrinkles](https://beauty.allwomenstalk.com/most-natural-ways-to-prevent-wrinkles-that-really-do-work/)
+- [fair or pale skin](https://skincare.allwomenstalk.com/steps-to-embracing-fair-skin-and-learning-to-love-it/)
+- [how to get a tan without the sun](https://beauty.allwomenstalk.com/ways-to-get-a-tan-without-actually-tanning/)
+- [acne skincare tips](https://skincare.allwomenstalk.com/no-nonsense-skin-care-tips-for-acne-prone-skin/)
 - [7 Ways to Get Perfect Skin ...](https://skincare.allwomenstalk.com/7-ways-to-get-perfect-skin/)
 - [7 Ways to Get Your Skin Ready for Spring ...](https://skincare.allwomenstalk.com/7-ways-to-get-your-skin-ready-for-spring/)
 
