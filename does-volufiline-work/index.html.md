@@ -42,9 +42,9 @@ This table is an editorial comparison, not a treatment recommendation. A dermato
 
 The most useful way to read the Volufiline claims is as an evidence ladder. Each rung answers a narrower question than the one TikTok usually asks.
 
-![Volufiline evidence ladder: supplier lab work, a small breast study, and no controlled facial trial identified in the sources reviewed.](https://img.allw.mn/uploads/evidence-ladder-1791483350134.png)
+![Volufiline evidence ladder: supplier lab work, a small breast study, and no controlled facial trial identified in the sources reviewed.](https://img.allw.mn/uploads/evidence-ladder-organic-light-1791498300878.png)
 
-[Open the full-size evidence ladder](https://img.allw.mn/uploads/evidence-ladder-1791483350134.png) to save or share it. The breast figure comes from the supplier patent, not a peer-reviewed facial study.
+[Open the full-size evidence ladder](https://img.allw.mn/uploads/evidence-ladder-organic-light-1791498300878.png) to save or share it. The breast figure comes from the supplier patent, not a peer-reviewed facial study.
 
 The supplier patent reports a cream containing 5% sarsasapogenin applied twice daily. Thirty people completed the study, and 28 had evaluable measurements at the final visit. The reported average change was about 2.2% on the treated side after the study period. That is a small, supplier-linked breast study with an untreated comparison side. It is not a facial trial, and it does not establish a filler-like result.
 
