@@ -1,63 +1,115 @@
 ---
-title: "8 Skincare Tips for Fall ..."
-description: "Argan Oil; Vitamin D; Sunscreen; Coconut Oil; Coconut Water; More ..."
+title: "Your Fall Skincare Reset: 8 Swaps Dermatologists Recommend as the Weather Turns"
+description: "How to change your skincare for fall: a gentler cleanser, a richer moisturizer, daily SPF, a slow retinol start and the one-change-at-a-time rule, with dermatologist advice."
 url: "https://skincare.allwomenstalk.com/skincare-tips-for-fall/"
 category: "skincare"
-last_updated: "2026-10-22"
+last_updated: "2026-10-23"
 ---
 
-# 8 Skincare Tips for Fall ...
+# Your Fall Skincare Reset: 8 Swaps Dermatologists Recommend as the Weather Turns
 
-I, like so many women, have some issues … with my skin. I have incredibly dry skin on every part of my body except my forehead. With the help of a very talented dermatologist, I have tried everything to keep my skin healthy. When October rolls around and the weather gets a little cooler, my skin starts to panic. I immediately get into defense mode. These are some of the tips I have learned along the way. By the time you are getting ready for that cider mill or haunted hay ride, your skin will be looking incredible.
+To reset your skincare for fall, swap a foaming cleanser for a gentle, hydrating one, move to a richer moisturizer with ingredients such as ceramides, glycerin or hyaluronic acid, keep wearing sunscreen every day and, if your skin tolerates it, ease in a retinol once or twice a week. Change one product at a time.
 
-## 1. Argan Oil
+The good news: you don’t need a whole new shelf. As board-certified dermatologist Dr. Aya Ahram of Hudson Dermatology and Laser Surgery told [ELLE](https://www.elle.com/beauty/a74180028/fall-transition-skincare-routine-explained/), “A complicated routine isn’t necessarily a better routine.” A gentle cleanser, the right moisturizer, sunscreen and one well-chosen active can do more than a counter full of new launches.
 
-A few years ago I was desperately looking for something to hydrate my dry October skin, I stumbled upon Argan oil. It has been love ever since. Granted I have dry skin, but I have given this wonder oil to my friends with various types of skin and they all love it. Some people feel like it stops the aging process, I am not so sure about that, but I do know it makes my skin feel better than it has ever felt. The oil comes from a kernel on a tree in Morocco. It is very important when buying Argan oil that you look at the ingredients. A lot of companies have tried to jump on the bandwagon creating synthetic oil, but you don’t want that - stick to the real stuff. Josie Maran has a great Argan Oil line available at Sephora. The great thing about this product is that it can be used on your hair as well. It works like a leave on conditioner. But be careful as my dermatologist always says to me, "a dab will do ya." A little goes a very long way, so while it is not cheap, at least it will last you a long time.
+## Why skin gets dry and tight in the fall
 
-## 2. Vitamin D
+Cooler temperatures and lower humidity can increase water loss from your skin, Ahram explains, leaving it feeling tight, flaky or irritated. Her biggest recommended change is “shifting the focus from lightweight products to a routine that prioritizes hydration and barrier support.”
 
-I would like to preface this by saying do not take anything without consulting your doctor or medical professional. Ok, now that I have the disclaimer out of the way I have to tell you about this vitamin. If you already take a multi vitamin, you are getting some Vitamin D, although most women are not getting enough. There is a lot of talk about the lack of ‘D’ in women. But I just want to stick to the benefits to the skin especially for the fall and winter. We get some of the vitamin from the sun, but what happens with the sun goes down? Well, we need a supplement. When you have the correct levels of Vitamin D, your skin is loving life and spreading the word. Some of the benefits are reduced acne, less inflammation and some women have found their psoriasis to be much more manageable. This is truly the time of year to evaluate your Vitamin D intake. Your skin will thank you.
+How much you notice depends on your baseline. People with dry or sensitive skin may see tightness, flaking, redness and stinging as the air dries out. Oily skin changes less, but it still needs moisture.
 
-## 3. Sunscreen
+## 8 fall skincare swaps
 
-So many women think that once the days get shorter they can pack up their SPF with the flip flops. That is not the case. Using a sunscreen everyday even in autumn is vital. The sun still has some powerful rays in the colder months and your skin is vulnerable. It is a good rule of thumb to get in the habit of sunscreen in the morning with your regular face washing/hydrating line up. Philosophy makes a great face moisturizer with SPF called Hope in a Jar with SPF. You can find that at a variety of places like Ulta or Sephora. Also, carry a travel size tube in your purse or gym bag because during the day the SPF will wear off leaving you naked to the sun and those damaging UV rays.
+### 1. Swap a foaming cleanser for a gentle, hydrating one
 
-## 4. Coconut Oil
+Start at the sink. Ahram suggests switching from a foaming cleanser to a gentler, hydrating formula that doesn’t strip your skin of its natural moisturizing factors. If your face feels squeaky or tight after washing, that’s your cue.
 
-Not only is coconut oil a great [substitute for butter](https://food.allwomenstalk.com/delicious-alternatives-to-butter/) when cooking, it also works on your skin. The oil works like a magnet for the gunk under your skin. There are a few methods you can use, but I like the coconut oil wash the best. Mix equal parts coconut oil and castor oil, rub on your face gently and then wipe off. If you want to really get a facial experience, apply this in the shower and let the steam really soak the mixture into your skin. Remember when I said coconut oil is like a magnet, well, that is the biggest drawback this product has. After the first few times you will notice some acne like bumps. That is just your skin getting the junk out. Stick with it; you will thank me later.
+### 2. Move to a richer moisturizer (and consider a hydrating serum)
 
-## 5. Coconut Water
+Look for ingredients that attract and seal in water: ceramides, glycerin, hyaluronic acid and petrolatum, depending on your skin type, says Ahram. Ceramides are lipids that help maintain the skin’s protective barrier, and glycerin and hyaluronic acid are humectants that pull water into the skin and help hold it there. Aesthetician Rachel Liverman, founder of Glowbar, also recommends adding a hydrating serum under a richer moisturizer.
 
-Speaking of coconuts, the water just like the oil is pretty awesome. Most people think of coconuts as the smell of summer. I envision a bronze sun worshipper reeking of that familiar coconut scent. This water does not taste like that nor does it remind me of summer. Coconut water is an acquired taste. But once you acquire it, you will be hooked. It is important to look for brands that actually have water from a coconut as their first ingredient. Many will add pineapple or orange to make them a tad tastier. This water is not cheap, but if you skip the soda for a day or two you should break even. The reason this water is such a great skin hydrator is because it has naturally occurring potassium, sodium and magnesium. Hydration is not just key in dry skin, but all skin. Drinking lots of regular water is great as well, but why not get a couple extra benefits while you are at it.
+Not sure what goes on first? Here’s how to [apply your skincare products in the right order](https://skincare.allwomenstalk.com/tips-on-how-to-apply-your-skincare-products-in-the-correct-order/).
 
-## 6. The Bad Stuff
+### 3. Oily skin? Still moisturize
 
-Do I really have to tell you about the things that are killing your beautiful, youthful, glowing skin? I guess so because I still see so many tan faces. These are my top two pet peeves and things you need to stop doing right now to get that awesome autumn skin. First, quit smoking. You know you should, you know you want to, but do you know it is ruining your skin? Not only is it giving you a grey complexion, it is giving you some rugged upper lip lines. It's also thinning your skin. I could go on, but you know the rest. Two, break your tanning addiction. Tanning may be giving you a golden (orange) look, but it is killing your skin. Literally, KILLING your skin. It is sucking the elasticity out of your skin, and that meant if tanning doesn't give you skin cancer, it will at least give you dry, sagging, wrinkly skin. Not your best look for fall...
+Skipping moisturizer isn’t the answer for oily skin either. Ahram says you may be able to get by with a water-based gel cream instead of a thick cream.
 
-## 7. Tread Lightly
+### 4. Keep your daily SPF
 
-When the weather gets a little colder, the skin tends to get a little more dry. We then want to take an industrial sized loofah and scrub the heck out of our face. This is not the answer my friends, so take this fall skin care tip to heart. When you start to see those patches of dry pop up, keep calm and re-evaluate. The moisturizer that you used during the summer may not be what you need in the fall. You may need to get a heavier day or night cream. Also, you might want to switch your face wash to a no-water-needed cleaner such as CeraVe or Cetaphil, both available in most drugstores. They tend to be much easier on the skin, allowing natural moisture to stay put while still getting you squeaky clean. Also, never rub your skin to dry it. Always, always, always pat dry. No one knows your skin better than you do, so if you tend to get a bit of an acne problem once in awhile, keep an acne type wash on hand. It is better to have the tools and be prepared rather than playing catch up.
+Summer is over; sunscreen season isn’t. Both experts call it non-negotiable. “Continue wearing sunscreen daily, since UVA rays contribute to photoaging and pigmentation year-round, and incidental sun exposure still adds up,” says Ahram.
 
-## 8. Bronzer
+### 5. Ease in a retinol: once or twice a week, with hydration
 
-How do you get that sun kissed look when it gets dark before you get home from work? Well, the answer to that is bronzer. Some ladies have a love hate relationship with this product. I love it, but I can see how some may not. They are not using the right product. Bronzer is not meant to tan your face, it is just supposed to give you a little kick to your natural complexion. Don’t go for those super dark shades. Stick with a color that is near your natural color, nothing too dark this time of the year. The last thing you want to look like is an oompa loompa at the Friday night football game. Some really great bronzers on the market are: M.A.C Bronzing Powder and The Body Shop Honey Bronzing Powder. Both apply evenly, are compatible with a variety of skin tones and work well on sensitive skin.
+If you’ve been meaning to try a retinol, fall is a good time to start. Liverman explains that lower sun exposure gives your skin more time to adjust and build tolerance. Retinol “can be drying and irritating at first,” she says, so start one or two times a week and pair it with plenty of hydration.
 
-Fall is such a great time of year. Do not let your skin ruin this fantastic season. Get out there and enjoy the changing leaves, cooler nights and pumpkin everything. But just don’t forget to be proactive and take care of your skin. It will thank you for years to come. Which of these fall skin care tips do you think is most helpful? Or do you have another idea to share?
+Ahram adds that retinoids are among the best-studied topical ingredients for acne, uneven skin tone and photoaging. But there’s an important exception: if your skin is already dry, sensitive or inflamed, fix your barrier first with ceramides, glycerin and hyaluronic acid, then add the active later.
 
-Top Image Source: _le-21eme.com_
+### 6. Make one change at a time
+
+This is the rule that prevents most fall skin drama. Liverman warns against making too many big changes at once, because overdoing it can lead to dryness and irritation as the weather gets colder. Ahram’s advice:
+
+- Introduce one new product at a time so you can tell what’s working and what isn’t.
+
+- Don’t overlap actives (for example, a new retinol and a new exfoliating acid in the same week).
+
+- Watch for warning signs. “Persistent burning, stinging, redness, and scaling are not signs that a product is working better,” Ahram says.
+
+**Stop and reassess if you notice:** burning, stinging, redness or scaling that doesn’t settle. Pause the newest product, go back to a gentle cleanser and moisturizer, and check with a dermatologist if it continues.
+
+### 7. Don’t over-exfoliate (or scrub peeling skin)
+
+Flaky skin can make you want to scrub. Don’t. “Try not to combine multiple exfoliating products or use scrubs on skin that is already dry or peeling,” Ahram says. “The peeling is usually a sign that you need more hydration in your skin, not exfoliation.”
+
+### 8. Look after hands, lips and body, and turn down the shower
+
+Your hands, lips and body are often ignored until they crack, Ahram notes. She suggests a richer hand cream and a lip ointment to prevent irritation before it starts. And as tempting as a long, hot shower is on a cold night, it can make dryness worse. Her advice: shorter showers with warm (not hot) water, then moisturize right away.
+
+## If you have eczema or rosacea
+
+Flares can become more frequent as the weather changes, according to Ahram. Prioritize gentle cleansing and barrier repair, and see your dermatologist if your skin is flaring or you’re unsure which products to use.
+
+## In-office treatments in the fall
+
+Both experts point out that fall is a popular time for professional treatments such as chemical peels, dermaplaning, lasers and microneedling, partly because lower sun exposure makes recovery easier. If you’re considering one, talk to a board-certified dermatologist first about whether it suits your skin and how to coordinate it with your home routine. Ahram generally recommends avoiding excessive exfoliation and carefully coordinating retinoids, acids and procedures to minimize irritation.
+
+## Skin basics that don’t change with the season
+
+Some advice works all year. Avoid tanning, don’t smoke and protect your skin from the sun; all three help keep skin healthier over time. For more everyday tips, see this advice [from the American Academy of Dermatology](https://skincare.allwomenstalk.com/valuable-tips-from-the-american-academy-of-dermatology/), or update your makeup for the new season with these [fall beauty transition tips](https://beauty.allwomenstalk.com/flawlessly-transition-into-fall-with-these-hot-x-beauty-tips/). Want more ways to stay glowy as it gets colder? Here’s how to [keep your skin glowing during the fall](https://skincare.allwomenstalk.com/ways-to-keep-your-skin-glowing-during-the-fall/).
+
+## FAQ
+
+### How should I change my skincare routine for fall?
+
+Shift from lightweight products to hydration and barrier support: use a gentler hydrating cleanser, a richer moisturizer with ceramides, glycerin or hyaluronic acid, and daily sunscreen. If your skin tolerates it, add one active, such as a retinol, slowly.
+
+### Is fall a good time to start retinol?
+
+It can be. Aesthetician Rachel Liverman says lower sun exposure gives your skin more time to build tolerance, and suggests starting one or two times a week with plenty of hydration. If your skin is dry, sensitive or inflamed, dermatologist Dr. Aya Ahram advises repairing your barrier first.
+
+### Do I still need sunscreen in the fall?
+
+Yes. Dr. Ahram explains that UVA rays contribute to photoaging and pigmentation all year, and incidental sun exposure adds up.
+
+### What ingredients help a dry, irritated skin barrier?
+
+Ceramides help maintain the skin’s protective barrier, while glycerin and hyaluronic acid attract and hold water. Petrolatum helps seal moisture in. Choose based on your skin type.
+
+### Should I exfoliate more or less in the fall?
+
+Be careful. Don’t combine several exfoliating products, and don’t scrub skin that’s already dry or peeling. According to Dr. Ahram, peeling usually means your skin needs more hydration, not more exfoliation.
 
 ## Related Posts
 
-- [8 Helpful Ways to Prevent and Fade Acne Scars ...](https://skincare.allwomenstalk.com/helpful-ways-to-prevent-and-fade-acne-scars/)
-- [beneficial skin and body care](https://skincare.allwomenstalk.com/beneficial-body-care-tips-to-consider/)
 - [10 Urban Skincare Myths Debunked ...](https://skincare.allwomenstalk.com/urban-skincare-myths-debunked/)
-- [8 Tips for after Gym Skin Care ...](https://skincare.allwomenstalk.com/tips-for-after-gym-skin-care/)
+- [21 Skin Care Tips I Learned from YouTube ...](https://skincare.allwomenstalk.com/skin-care-tips-i-learned-from-youtube/)
+- [7 Fab Skincare Tips to Follow in Your 20's ...](https://skincare.allwomenstalk.com/fab-skincare-tips-to-follow-in-your-20s/)
 - [8 Ways to Brighten up Dull Skin ...](https://beauty.allwomenstalk.com/ways-to-brighten-up-dull-skin/)
 - [skin clues](https://skincare.allwomenstalk.com/clues-on-what-your-skin-is-telling-you/)
-- [7 Fab Skincare Tips to Follow in Your 20's ...](https://skincare.allwomenstalk.com/fab-skincare-tips-to-follow-in-your-20s/)
-- [7 Terrific Tips on Preventing Aging Hands ...](https://skincare.allwomenstalk.com/terrific-tips-on-preventing-aging-hands/)
-- [21 Skin Care Tips I Learned from YouTube ...](https://skincare.allwomenstalk.com/skin-care-tips-i-learned-from-youtube/)
 - [7 Beauty Tips on How to Weatherproof Your Skin ...](https://skincare.allwomenstalk.com/beauty-tips-on-how-to-weatherproof-your-skin/)
+- [7 Terrific Tips on Preventing Aging Hands ...](https://skincare.allwomenstalk.com/terrific-tips-on-preventing-aging-hands/)
+- [beneficial skin and body care](https://skincare.allwomenstalk.com/beneficial-body-care-tips-to-consider/)
+- [8 Tips for after Gym Skin Care ...](https://skincare.allwomenstalk.com/tips-for-after-gym-skin-care/)
+- [8 Helpful Ways to Prevent and Fade Acne Scars ...](https://skincare.allwomenstalk.com/helpful-ways-to-prevent-and-fade-acne-scars/)
 - [8 Summer Beauty Tips ...](https://skincare.allwomenstalk.com/summer-beauty-tips/)
 - [8 Beach Skincare Tips ...](https://skincare.allwomenstalk.com/beach-skincare-tips/)
 
