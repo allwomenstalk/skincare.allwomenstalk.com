@@ -1,78 +1,142 @@
 ---
-title: "Best Retinol Creams and Serums: 8 Options by Skin Need"
-description: "Compare eight current retinol creams and serums by texture, strength, and skin concern, plus dermatologist-backed tips for starting retinoids safely."
+title: "15 Best Retinol Creams"
+description: "Explore the original 15 retinol creams and treatments with product images and shopping links, plus clear guidance on choosing and using retinoids."
 url: "https://skincare.allwomenstalk.com/best-retinol-creams/"
 category: "skincare"
 last_updated: "2026-10-27"
 ---
 
-# Best Retinol Creams and Serums: 8 Options by Skin Need
+# 15 Best Retinol Creams
 
-Retinol can help improve the look of fine lines, uneven tone, and texture, but the best formula is the one your skin can tolerate consistently. This updated guide groups current products by texture, strength, and skin concern. It includes creams, serums, and one retinal cream; retinal is a related retinoid, not the same ingredient as retinol. These are editorial picks based on published ingredient lists and product details, not hands-on testing. Formulas and availability can change, so check the brand’s current label before buying.
+Retinol products come in creams, serums, and targeted treatments. Here are the same 15 products from our original list, in the same order, with their original images and shopping links. We have updated the descriptions to remove exaggerated promises. Some product names use terms such as “bio-retinol,” while another features retinaldehyde; these are not necessarily the same as retinol. Product names, formulas, prices, and availability can change, so confirm the current label and price with the retailer before buying.
 
-## Quick picks
+## The original 15 products
 
-- **New to retinol:** [CeraVe Skin Renewing Retinol Serum](https://www.cerave.com/skincare/facial-serums/skin-renewing-retinol-serum) pairs retinol with ceramides, niacinamide, and hyaluronic acid.
+### 1. Chantecaille Retinol Intense
 
-- **Want a cream:** [Neutrogena Rapid Wrinkle Repair Regenerating Cream, Fragrance-Free](https://www.neutrogena.com/products/skincare/rapid-wrinkle-repair-regenerating-retinol-cream-fragrance-free-hyaluronic-acid/6811107) offers a moisturizing texture without added fragrance.
+![Chantecaille Retinol Intense](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/2013/12/09032946_6402_521x497.jpg)
 
-- **Want a stated low concentration:** [The Ordinary Retinol 0.2% in Squalane](https://theordinary.com/en-gb/retinol-02-in-squalane-serum-100439.html) lists its retinol strength and has an oil-like feel.
+A cream option for readers who prefer a richer texture. Check the current ingredient list and directions before adding it to your routine.
 
-- **Already tolerate retinoids:** [Paula’s Choice Clinical 1% Retinol Treatment](https://www.paulaschoice.com/clinical-1pct-retinol-treatment/801.html) is a stronger option to approach gradually.
+**Shop:** [chantecaille.com](https://www.chantecaille.com?ref=allwomenstalk.com)
 
-## 8 retinol creams and serums to consider
+### 2. Dr. Dennis Gross Skincare Ferulic Acid + Retinol Brightening Solution
 
-### 1. CeraVe Skin Renewing Retinol Serum — an approachable first pick
+![Dr. Dennis Gross Skincare Ferulic Acid + Retinol Brightening Solution](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/2013/12/09032946_8534_521x467.jpg)
 
-This lightweight, fragrance-free serum combines encapsulated retinol with ceramides, niacinamide, and hyaluronic acid. It makes sense if you prefer a serum under your usual moisturizer or want supporting ingredients while you introduce retinol. CeraVe does not state a retinol percentage on the product page, so the number alone cannot guide your choice. [See the current formula and directions](https://www.cerave.com/skincare/facial-serums/skin-renewing-retinol-serum).
+A liquid treatment from the original list. If your main concern is uneven tone, compare its current formula and directions with other retinoid products.
 
-### 2. Neutrogena Rapid Wrinkle Repair Regenerating Cream, Fragrance-Free — a moisturizing cream
+**Shop:** [sephora.com](http://www.sephora.com?ref=allwomenstalk.com)
 
-This cream combines retinol with hyaluronic acid and has no added fragrance. Choose it if a cream is easier to fit into your evening routine than a separate serum. Fragrance-free does not guarantee irritation-free: start slowly and watch how your skin responds. [Check the ingredient list](https://www.neutrogena.com/products/skincare/rapid-wrinkle-repair-regenerating-retinol-cream-fragrance-free-hyaluronic-acid/6811107).
+### 3. Algenist Retinol Firming & Lifting Serum
 
-### 3. RoC Retinol Correxion Deep Wrinkle Night Cream — a classic drugstore night cream
+![Algenist Retinol Firming & Lifting Serum](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/2013/12/09032946_1183_521x482.jpg)
 
-RoC’s current night cream contains retinol and moisturizing ingredients including glycerin and squalane. Its ingredient list also includes fragrance, which may matter if your skin reacts to scented products. Treat the brand’s wrinkle claims as its own test results, rather than a promise for every user. [See the current product](https://www.rocskincare.com/products/retinol-correxion-deep-wrinkle-night-cream-1).
+A serum format for anyone who prefers a lighter layer under moisturizer. Introduce it gradually, especially if you already use other active ingredients.
 
-### 4. Olay Regenerist Retinol24 Night Moisturizer — a fragrance-free night moisturizer
+**Shop:** [sephora.com](http://www.sephora.com?ref=allwomenstalk.com)
 
-Olay’s cream is designed as an evening moisturizer and is fragrance-free. It can simplify a routine if you want retinol and moisturizer in one step. The brand does not disclose a retinol percentage on this product page, so compare texture and tolerability as well as ingredient claims. [See Olay’s directions](https://www.olay.com/products/olay-retinol24-night-moisturizer).
+### 4. Philosophy Help Me Cream
 
-### 5. The Ordinary Retinol 0.2% in Squalane — a low-strength, oil-like serum
+![Philosophy Help Me Cream](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/2013/12/09032946_8626_521x482.jpg)
 
-The disclosed 0.2% retinol concentration gives beginners a specific starting point. Squalane gives this water-free serum a richer, oil-like finish that may appeal to dry skin, but it may feel heavy if you prefer a light lotion. The brand recommends building up gradually. [Read the product details](https://theordinary.com/en-gb/retinol-02-in-squalane-serum-100439.html).
+An overnight cream from the original lineup. Follow the product label and give your skin time to adjust before using it more often.
 
-### 6. CeraVe Resurfacing Retinol Serum — for the look of post-acne marks
+**Shop:** [sephora.com](http://www.sephora.com?ref=allwomenstalk.com)
 
-This fragrance-free serum combines encapsulated retinol with niacinamide and ceramides and is positioned for uneven tone left after breakouts. It is for the _appearance of marks_, not a cure for active acne or indented scars. If acne is persistent or scarring, ask a dermatologist about treatment options. [See the serum](https://www.cerave.com/skincare/facial-serums/resurfacing-retinol-serum).
+### 5. Peter Thomas Roth Retinol Fusion PM Night Serum
 
-### 7. Avène Retrinal 0.1% Intensive Multi-Corrective Cream — a retinal alternative
+![Peter Thomas Roth Retinol Fusion PM Night Serum](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/2013/12/09032946_1188_521x464.jpg)
 
-This cream contains 0.1% retinaldehyde, also called retinal. It is a retinoid, but it is not retinol, so do not compare its percentage directly with a retinol percentage. Consider it if you already know you want to try retinal; introduce it with the same care as other retinoids. [Check the current formula](https://www.aveneusa.com/collections/retrinal/retrinal-0-1-intensive-multi-corrective-cream).
+A nighttime serum that may appeal to readers who prefer a fluid texture. Start with a few nights a week and adjust based on comfort.
 
-### 8. Paula’s Choice Clinical 1% Retinol Treatment — for experienced users
+**Shop:** [peterthomasroth.com](http://www.peterthomasroth.com?ref=allwomenstalk.com)
 
-At 1% retinol, this is a higher-strength choice for someone who has already tolerated a gentler retinoid. More is not automatically better: dryness and irritation can interrupt use and worsen the look of uneven tone. Begin less often, follow the brand’s instructions, and scale back if your skin becomes irritated. [See product details](https://www.paulaschoice.com/clinical-1pct-retinol-treatment/801.html).
+### 6. TxSystems Afirm 3X
 
-## How to start retinol without overdoing it
+![TxSystems Afirm 3X](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/2013/12/09032946_3390_521x486.jpg)
 
-The [American Academy of Dermatology](https://www.aad.org/public/everyday-care/skin-care-secrets/anti-aging/retinoid-retinol/) recommends starting with a less intense formula, using it every other night at first, and increasing only as your skin tolerates it. Apply it in the evening as directed on the label, use a moisturizer if needed, and protect your skin from the sun during the day. A broad-spectrum SPF 30 or higher is a sensible daily baseline. If dryness, peeling, or stinging persists, reduce use and seek a dermatologist’s advice.
+The original list featured the 3X version. If you are new to retinoids, check the current strength and consider a gentler starting option.
 
-Retinoids should **not be used during pregnancy**. If you are pregnant, trying to conceive, or breastfeeding, ask your obstetrician or dermatologist to review your skin-care routine. People with significant redness, very dry skin, or an active skin condition may also need individualized advice before starting. [Read the AAD’s pregnancy guidance](https://www.aad.org/public/everyday-care/skin-care-secrets/routine/pregnancy-skin-care).
+**Shop:** [skinstore.com](http://www.skinstore.com?ref=allwomenstalk.com)
 
-## Retinol questions, answered
+### 7. Kate Somerville Retasphere 2-in-1 Retinol Night Cream
 
-### Is retinol the same as a prescription retinoid?
+![Kate Somerville Retasphere 2-in-1 Retinol Night Cream](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/2013/12/09032947_2162_521x454.jpg)
 
-No. Retinol is one member of the retinoid family and is commonly sold over the counter. Prescription options differ in ingredient and strength. A dermatologist can help if you need treatment for acne or another medical concern.
+A night cream from the original selection. Compare the current ingredient list with your skin needs, especially if fragrance or other ingredients bother you.
 
-### How long should I give it?
+**Shop:** [katesomerville.com](http://redirect.viglink.com/?key=a7330d1bba7bc7d258ecc1463a1b25b1&u=http://www.katesomerville.com/retasphere-2-in-1-retinol-night-cream/)
 
-Visible changes take consistent use over weeks or months, and results vary. Avoid judging a product after only a few applications. A comfortable routine you can maintain is more useful than moving quickly to the strongest bottle.
+### 8. RoC Retinol Correxion Deep Wrinkle Night Cream
 
-### Do I need both a retinol cream and serum?
+![RoC Retinol Correxion Deep Wrinkle Night Cream](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/2013/12/09032948_3169_521x437.jpg)
 
-Usually one retinoid product is enough to start. Layering several retinoids can increase irritation without giving you a clear way to tell which product helps. Choose a texture you like, follow its label, and add other active products thoughtfully.
+A familiar drugstore night cream from the original list. Choose it based on the current formula and your tolerance, rather than a promised timeline for results.
+
+**Shop:** [walgreens.com](https://goo.gl/3P9BRX)
+
+### 9. SkinCeuticals Refining Night Cream
+
+![SkinCeuticals Refining Night Cream](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/2013/12/09032948_3213_521x439.jpg)
+
+A night cream pick for readers who prefer a cream over a serum. Check the current product name and ingredient list when shopping.
+
+**Shop:** [skinceuticals.com](http://www.skinceuticals.com?ref=allwomenstalk.com)
+
+### 10. Eau Thermale Avène Retrinal H.a.F
+
+![Eau Thermale Avène Retrinal H.a.F](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/2013/12/09032947_3330_521x458.jpg)
+
+This pick is associated with retinaldehyde, also called retinal. Retinal is a retinoid but is not the same ingredient as retinol; follow the current label.
+
+**Shop:** [dermstore.com](http://www.dermstore.com?ref=allwomenstalk.com)
+
+### 11. Amore Pacific Line Modifier Eye & Lip
+
+![Amore Pacific Line Modifier Eye & Lip](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/2013/12/09032947_5850_335x365.jpg)
+
+An eye-and-lip product from the original lineup. Use only as directed for these delicate areas and stop if it causes irritation.
+
+**Shop:** [neimanmarcus.com](http://www.neimanmarcus.com?ref=allwomenstalk.com)
+
+### 12. Decleor 'Expression De L' Ge' Relaxing Smoothing Eye Cream with Bio-Retinol Ap²
+
+![Decleor 'Expression De L' Ge' Relaxing Smoothing Eye Cream with Bio-Retinol Ap²](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/2013/12/09032947_3138_349x514.jpg)
+
+The product name uses “Bio-Retinol.” That term does not, by itself, confirm that a formula contains retinol; check the current ingredient list.
+
+**Shop:** [shop.nordstrom.com](http://shop.nordstrom.com?ref=allwomenstalk.com)
+
+### 13. REN Bio Retinoid anti-Ageing Concentrate
+
+![REN Bio Retinoid anti-Ageing Concentrate](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/2013/12/09032948_6304_499x444.jpg)
+
+This “Bio Retinoid” concentrate remains in the original lineup. Check the ingredient list to see which, if any, vitamin A derivative the current formula contains.
+
+**Shop:** [sephora.com](http://www.sephora.com?ref=allwomenstalk.com)
+
+### 14. Dr. Brandt Skincare Glow by Dr. Brandt Ruby Crystal Retinol Hydracreme
+
+![Dr. Brandt Skincare Glow by Dr. Brandt Ruby Crystal Retinol Hydracreme](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/2013/12/09032948_5480_249x246.jpg)
+
+A moisturizer-style pick from the original article. Focus on the current ingredient list and how the product feels on your skin rather than dramatic claims.
+
+**Shop:** [sephora.com](http://www.sephora.com?ref=allwomenstalk.com)
+
+### 15. Murad Time Release Retinol Concentrate for Deep Wrinkles
+
+![Murad Time Release Retinol Concentrate for Deep Wrinkles](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/2013/12/09032948_4874_249x232.jpg)
+
+A targeted concentrate from the original list. Follow its current directions and build frequency slowly if it contains a retinoid.
+
+**Shop:** [sephora.com](http://www.sephora.com?ref=allwomenstalk.com)
+
+## How to use a retinoid thoughtfully
+
+The [American Academy of Dermatology](https://www.aad.org/public/everyday-care/skin-care-secrets/anti-aging/retinoid-retinol/) advises starting with a less intense formula, using it every other night at first, and increasing only as your skin tolerates it. Follow the product label, use moisturizer if needed, and wear sun protection during the day. If irritation persists, stop and ask a dermatologist for advice.
+
+Retinoids should not be used during pregnancy. If you are pregnant, trying to conceive, or breastfeeding, ask your obstetrician or dermatologist to review your routine. [Read the AAD pregnancy guidance](https://www.aad.org/public/everyday-care/skin-care-secrets/routine/pregnancy-skin-care).
 
 ## Related Posts
 
