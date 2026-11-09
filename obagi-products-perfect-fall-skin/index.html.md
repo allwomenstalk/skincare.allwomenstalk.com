@@ -1,9 +1,9 @@
 ---
 title: "4 Cult Obagi Products for Fall🍁 to Stock up on during Obagi Amazon Prime Day🎁📦 …"
-description: "The Importance of a Fall Skincare Routine; Obagi Nu-Derm Foaming Gel; Obagi Professional C® Serum 20%; Obagi CLENZIderm M.D.® Pore Therapy; Obagi Hydrate Luxe®; More ..."
+description: "The Importance of a Fall Skincare Routine; Obagi Nu-Derm Foaming Gel; Obagi Professional C® Serum 20%; Obagi CLENZIderm M.D.® Pore Therapy"
 url: "https://skincare.allwomenstalk.com/obagi-products-perfect-fall-skin/"
 category: "skincare"
-last_updated: "2026-10-22"
+last_updated: "2026-11-09"
 ---
 
 # 4 Cult Obagi Products for Fall🍁 to Stock up on during Obagi Amazon Prime Day🎁📦 …

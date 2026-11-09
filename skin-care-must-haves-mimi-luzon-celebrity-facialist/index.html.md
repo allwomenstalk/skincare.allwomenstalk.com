@@ -1,9 +1,9 @@
 ---
 title: "5 Skin Care Must-Haves from Mimi Luzon \\- The Celebrity Facialist’s Edit for Radiant Skin"
-description: "The Art of Skin, According to Mimi Luzon; The Lip Essential You Will Never Be Without - Epic Lush Lip Balm; When Skin Needs Discipline - Fresh Face Clearing Mask; The Anti-Aging Indulgence That Actually Performs - De No Age Mask; The Professional Peel, Reimagined - Get Even Water; More ..."
+description: "The Art of Skin, According to Mimi Luzon; The Lip Essential You Will Never Be Without - Epic Lush Lip Balm"
 url: "https://skincare.allwomenstalk.com/skin-care-must-haves-mimi-luzon-celebrity-facialist/"
 category: "skincare"
-last_updated: "2026-10-22"
+last_updated: "2026-11-09"
 ---
 
 # 5 Skin Care Must\-Haves from Mimi Luzon \\\- The Celebrity Facialist’s Edit for Radiant Skin

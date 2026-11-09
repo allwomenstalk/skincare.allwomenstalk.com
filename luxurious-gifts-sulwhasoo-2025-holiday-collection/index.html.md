@@ -1,9 +1,9 @@
 ---
 title: "4 Luxurious Gifts from Sulwhasoo’s 2025 Holiday Collection to Indulge in …"
-description: "Cult Classics Set – $190 (Retail Value: $249); Concentrated Ginseng Rejuvenating Eye Cream Set – $123 (Retail Value: $158); Concentrated Ginseng Rejuvenating Cream Set – $260 (Retail Value: $349); Glowing Lip Balm – $38; Why Sulwhasoo Remains a Holiday Staple; More ..."
+description: "Cult Classics Set – $190 (Retail Value: $249); Concentrated Ginseng Rejuvenating Eye Cream Set – $123 (Retail Value: $158)"
 url: "https://skincare.allwomenstalk.com/luxurious-gifts-sulwhasoo-2025-holiday-collection/"
 category: "gifts"
-last_updated: "2026-10-22"
+last_updated: "2026-11-09"
 ---
 
 # 4 Luxurious Gifts from Sulwhasoo’s 2025 Holiday Collection to Indulge in …

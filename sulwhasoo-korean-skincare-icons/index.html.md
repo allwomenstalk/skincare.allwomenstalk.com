@@ -1,9 +1,9 @@
 ---
 title: "Sulwhasoo's Memorial Day Beauty Edit - 7 Korean Skincare Icons Worth Stocking Up On"
-description: "Why Sulwhasoo Still Dominates the Korean Skincare Conversation; The First Step That Changed Everything: First Care Activating Serum VI; The Cleanser That Refuses to Strip Your Skin of Joy; The Sheet Mask Equivalent of a Spa Weekend; The Serum That Thinks in Decades, Not Days; More ..."
+description: "Why Sulwhasoo Still Dominates the Korean Skincare Conversation; The First Step That Changed Everything: First Care Activating Serum VI"
 url: "https://skincare.allwomenstalk.com/sulwhasoo-korean-skincare-icons/"
 category: "skincare"
-last_updated: "2026-10-22"
+last_updated: "2026-11-09"
 ---
 
 # Sulwhasoo's Memorial Day Beauty Edit \- 7 Korean Skincare Icons Worth Stocking Up On

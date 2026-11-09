@@ -3,7 +3,7 @@ title: "What Is the Water Method for Skin?"
 description: "A simple damp-skin moisturizing routine, how it differs from skin flooding, and which actives belong on dry skin."
 url: "https://skincare.allwomenstalk.com/water-method-skincare/"
 category: "skincare"
-last_updated: "2026-11-01"
+last_updated: "2026-11-09"
 ---
 
 # What Is the Water Method for Skin?

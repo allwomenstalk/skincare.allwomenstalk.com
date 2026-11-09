@@ -1,9 +1,9 @@
 ---
 title: "7 Ingredients for a Home Made Moisturiser ..."
-description: "Aloe Vera; Olive Oil; Unscented Cocoa Butter; Jojoba Oil; Rose Water; More ..."
+description: "Aloe Vera; Olive Oil; Unscented Cocoa Butter; Jojoba Oil; Rose Water"
 url: "https://skincare.allwomenstalk.com/ingredients-for-a-home-made-moisturiser/"
 category: "skincare"
-last_updated: "2026-10-22"
+last_updated: "2026-11-09"
 ---
 
 # 7 Ingredients for a Home Made Moisturiser ...
@@ -42,16 +42,16 @@ Putting together your own home-made moisturising oil or cream can be very reward
 
 ## Related Posts
 
-- [8 anti-Blackhead Cleansers ...](https://skincare.allwomenstalk.com/anti-blackhead-cleansers/)
-- [boscia body wash](https://allwomenstalk.com/review-boscia/)
 - [7 Marvelous Facial Masks ...](https://beauty.allwomenstalk.com/marvelous-facial-masks/)
+- [boscia body wash](https://allwomenstalk.com/review-boscia/)
+- [8 anti-Blackhead Cleansers ...](https://skincare.allwomenstalk.com/anti-blackhead-cleansers/)
+- [Top 7 Skin Care Brands I Love ...](https://skincare.allwomenstalk.com/top-skin-care-brands-i-love/)
 - [diy natural acne treatment](https://beauty.allwomenstalk.com/simple-but-unbelievably-effective-homemade-acne-cleansers/)
 - [elizabeth arden tinted moisturiser](https://makeup.allwomenstalk.com/tinted-moisturisers/)
-- [how long after a tattoo can you take a bubble bath](https://lifestyle.allwomenstalk.com/wonderfully-awesome-fall-bubble-baths/)
-- [5 Great Plants for Homemade Beauty Products ...](https://gardening.allwomenstalk.com/5-great-plants-for-homemade-beauty-products/)
-- [ivory soap girl](https://lifestyle.allwomenstalk.com/giveaway-contest-ivory-soap/)
 - [oiled foot massage](https://allwomenstalk.com/foot-massage/)
-- [Top 7 Skin Care Brands I Love ...](https://skincare.allwomenstalk.com/top-skin-care-brands-i-love/)
+- [how long after a tattoo can you take a bubble bath](https://lifestyle.allwomenstalk.com/wonderfully-awesome-fall-bubble-baths/)
+- [ivory soap girl](https://lifestyle.allwomenstalk.com/giveaway-contest-ivory-soap/)
+- [5 Great Plants for Homemade Beauty Products ...](https://gardening.allwomenstalk.com/5-great-plants-for-homemade-beauty-products/)
 - [7 Recipes for Natural Homemade Facials ...](https://skincare.allwomenstalk.com/7-recipes-for-natural-homemade-facials/)
 - [7 Home-Made Hair Treatments ...](https://hair.allwomenstalk.com/home-made-hair-treatments/)
 

@@ -1,9 +1,9 @@
 ---
 title: "5 OURSELF Products That Will Absolutely Transform Your Skin …"
-description: "HA+ Replenishing Eye Serum; HA+ Replenishing Serum 30mL; Daily Dark Spot Intercept; Daily Renewal Cream Rich; Daily Purifying Cleanser; More ..."
+description: "HA+ Replenishing Eye Serum; HA+ Replenishing Serum 30mL; Daily Dark Spot Intercept; Daily Renewal Cream Rich; Daily Purifying Cleanser"
 url: "https://skincare.allwomenstalk.com/ourself-skincare-products/"
 category: "skincare"
-last_updated: "2026-10-22"
+last_updated: "2026-11-09"
 ---
 
 # 5 OURSELF Products That Will Absolutely Transform Your Skin …

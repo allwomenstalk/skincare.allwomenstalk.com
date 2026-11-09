@@ -1,9 +1,9 @@
 ---
 title: "7 Cult Sulwhasoo Skincare Products to Shop Before the Prime Day Sale Ends …"
-description: "Gentle Cleansing Foam; Gentle Cleansing Oil; Essential Comfort Firming Cream; Concentrated Ginseng Rejuvenating Cream; Concentrated Ginseng Rejuvenating Serum; More ..."
+description: "Gentle Cleansing Foam; Gentle Cleansing Oil; Essential Comfort Firming Cream; Concentrated Ginseng Rejuvenating Cream"
 url: "https://skincare.allwomenstalk.com/sulwhasoo-skincare-favorites-prime-day-sale/"
 category: "skincare"
-last_updated: "2026-10-22"
+last_updated: "2026-11-09"
 ---
 
 # 7 Cult Sulwhasoo Skincare Products to Shop Before the Prime Day Sale Ends …
